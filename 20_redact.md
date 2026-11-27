@@ -21,7 +21,7 @@ the quality of the unedited [90-minute-long audio recording](https://drive.googl
 
 smolii, prime minister oleksiy honcharuk, national bank of ukraine deputy chairwoman kateryna rozhkova, nbu board member dmytro solohub, finance minister oksana markarova and other officials, including minister of economic development, trade and agriculture tymofiy mylovanov are the main speakers in the brainstorming breakfast.
 
-all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr z. why low inflation and a strong hryvnia is the correct policy for the economy.
+all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr Z why low inflation and a strong hryvnia is the correct policy for the economy.
 
 three unflattering and misleading excerpts of the discussion were first posted on january 15 to the “how to deceive the president” youtube account (*какобманутьпрезидента*). honcharuk resigned two days later.
 
@@ -35,7 +35,7 @@ industrial production in ukraine in november 2019 decreased by 7.5% compared to 
 
 “the prime minister tendered his resignation letter to the president. it would have been easier for him to just drop it off at the central bank, which is closer to the president’s office,” skarshevsky said.
 
-neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between z. and honcharuk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
+neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between Z and honcharuk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
 
 the president instead asked the prime minister to resolve the following problems by february 4, 2020: 1) remuneration for ministers and top government officials, 2) bonus payments to naftogaz staff for winning the $2.9 billion stockholm arbitration ruling against gazprom, 3) removal of the least competent cabinet members, optimization of ministries and 4) improvement of cooperation between the government and parliament committees.
 
@@ -59,7 +59,7 @@ once senators have exhausted all of their time for questions in the impeachment 
 
 depending on what has occurred up to that point, the debate could begin on thursday, january 30. that’s when u.s. secretary of state michael pompeo — **a heat-seeking missile for trump’s ass** — is scheduled to visit kyiv.
 
-trump and his personal lawyer rudy (rudolph) giuliani are accused of managing a months-long campaign to coerce ukrainian president volodymyr z. to announce bogus investigations to increase trump’s chances of being re-elected in 2020. pompeo, along with other top officials in the trump administration, was kept apprised of, if not directly involved in, the shenanigans. pompeo hasn’t admitted it yet and has so far failed to turn over documents to congress.
+trump and his personal lawyer rudy (rudolph) giuliani are accused of managing a months-long campaign to coerce ukrainian president volodymyr Z to announce bogus investigations to increase trump’s chances of being re-elected in 2020. pompeo, along with other top officials in the trump administration, was kept apprised of, if not directly involved in, the shenanigans. pompeo hasn’t admitted it yet and has so far failed to turn over documents to congress.
 
 pompeo on january 22 [said](https://www.bloombergquint.com/politics/pompeo-says-u-s-remains-committed-to-ending-ukraine-corruption) the united states is committed to supporting ukraine and stamping out corruption in the country. he denied that giuliani oversaw a shadow foreign policy in ukraine. he lied.
 
@@ -183,7 +183,7 @@ This much is clear. When z!team promised one year ago to punish former top gover
 
 [Image]
 
-"**SPRING WILL COME AGAIN AND WE WILL THROW PEOPLE IN JAIL**" Those were the words on z!team's billboards throughout Ukraine more than a year ago. Oleksandr Kabanov, the author of the slogan, a screenwriter from z.'s Kvartal 95 production studio, is today a member of parliament. So far, no top former government officials have been convicted and "thrown into jail." That could change.
+"**SPRING WILL COME AGAIN AND WE WILL THROW PEOPLE IN JAIL**" Those were the words on z!team's billboards throughout Ukraine more than a year ago. Oleksandr Kabanov, the author of the slogan, a screenwriter from Z's Kvartal 95 production studio, is today a member of parliament. So far, no top former government officials have been convicted and "thrown into jail." That could change.
 
 [Image]
 
@@ -233,7 +233,7 @@ Kachura said other candidates with legal and law-enforcement experience are also
 
 "It would be proper if a lawyer becomes Prosecutor General," he said.
 
-Another anonymous MP from z.'s party said acting SBI Director Iryna Venediktova had also been considered for the post.
+Another anonymous MP from Z's party said acting SBI Director Iryna Venediktova had also been considered for the post.
 
 […]
 
@@ -255,7 +255,7 @@ Investigators from the State Bureau of Investigations suspect him of "illegally"
 
 **Article 62 of Ukraine’s Constitution reads:** *A person is presumed innocent of committing a crime and shall not be subjected to criminal punishment until his or her guilt is proved through legal procedure and established by a court verdict of guilty. No one is obliged to prove his or her innocence of committing a crime. An accusation shall not be based on illegally obtained evidence as well as on assumptions. All doubts in regard to the proof of guilt of a person are interpreted in his or her favour. In the event that a court verdict is revoked as unjust, the state compensates the material and moral damages inflicted by the groundless conviction.*
 
-In most Western coverage Ukraine’s ultra-competitive domestic politics is rarely examined in detail. That’s a shame, because, so far, the root-and-branch “reform” of the justice system countenanced under Volodymyr z. has been the aviation equivalent of looking for the black box after a plane crash, culminating with the ugly sacking of Prosecutor General Ruslan Ryaboshapka on March 5 for ostensibly refusing to sign on to z!team’s Poroshenko persecution campaign. The country’s return to “selective justice” amid coronavirus confusion could be a harbinger not just for Ukrainians, but for Europe as a whole.
+In most Western coverage Ukraine’s ultra-competitive domestic politics is rarely examined in detail. That’s a shame, because, so far, the root-and-branch “reform” of the justice system countenanced under Volodymyr Z has been the aviation equivalent of looking for the black box after a plane crash, culminating with the ugly sacking of Prosecutor General Ruslan Ryaboshapka on March 5 for ostensibly refusing to sign on to z!team’s Poroshenko persecution campaign. The country’s return to “selective justice” amid coronavirus confusion could be a harbinger not just for Ukrainians, but for Europe as a whole.
 
 ---
 
@@ -397,11 +397,11 @@ Policy makers in the West should take the time and make full use of their proces
 
 *Date: 2020-03-17 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. loyalist appointed Ukraine's Prosecutor General*
+*Z loyalist appointed Ukraine's Prosecutor General*
 
 [Image]
 
-When he ran for president, Volodymyr z. harshly criticized Ukraine’s nonexistent rule of law and blamed its failures on his predecessor. He won the presidency on promises to overhaul the flawed law enforcement system and imprison corrupt officials.
+When he ran for president, Volodymyr Z harshly criticized Ukraine’s nonexistent rule of law and blamed its failures on his predecessor. He won the presidency on promises to overhaul the flawed law enforcement system and imprison corrupt officials.
 
 Almost a year has passed, and there has been almost no progress. Corrupt officials continue to run amok, courts show no improvement and the president has appointed friends and Servant of the People loyalists to lead the country's law-enforcement agencies.
 
@@ -409,9 +409,9 @@ Parliament's consent on March 17 to the president's appointment of Iryna Venedyk
 
 > The new appointments after recent reshuffle of government are in conflict with major promises of Ukrainian President. His choice is not a signal for a new era of dignity, not for unity and also not for consequent fight against corruption, Harms [said](https://twitter.com/RebHarms/status/1239911057289818112) on Twitter.
 
-z. saw it differently.
+Z saw it differently.
 
-> …It seems to me that, for the first time in the history of independent Ukraine, the Prosecutor General may be a woman. (Applause) It seems to me that, for the first time in Ukraine’s history, the Prosecutor General will be a professional and productive person. Please support her," z. [told](https://iportal.rada.gov.ua/meeting/stenogr/show/7393.html) lawmakers.
+> …It seems to me that, for the first time in the history of independent Ukraine, the Prosecutor General may be a woman. (Applause) It seems to me that, for the first time in Ukraine’s history, the Prosecutor General will be a professional and productive person. Please support her," Z [told](https://iportal.rada.gov.ua/meeting/stenogr/show/7393.html) lawmakers.
 
 It “seemed” different to MP Inna Sovsun (Holos faction), who minutes later [delivered](https://twitter.com/GolosZmin/status/1239828396764475394) a blistering speech from the Rada rostrum.
 
@@ -423,13 +423,13 @@ It “seemed” different to MP Inna Sovsun (Holos faction), who minutes later [
 
 Sovsun’s speech fell on deaf ears. Some 269 MPs supported Venedyktova, who for the last two and a half months has worked as the acting head of [Ukraine's State Bureau of Investigations](https://dbr.gov.ua/) (SBI). Not a single deputy from the European Solidarity, Holos and Batkivshchyna factions voted in her favor.
 
-Venedyktova graduated from Kharkiv National University of Internal Affairs and specialized in commercial arbitration. She was number 3 in the Servant of the People Party list and headed parliament's legal policy committee. z. tapped her in December to replace Roman Truba as acting SBI director.
+Venedyktova graduated from Kharkiv National University of Internal Affairs and specialized in commercial arbitration. She was number 3 in the Servant of the People Party list and headed parliament's legal policy committee. Z tapped her in December to replace Roman Truba as acting SBI director.
 
-**The SBI under z., [Roman Truba](https://abdymok.substack.com/p/putting-the-truba-tapes-in-context) and Venedyktova** has churned out a litany of absurd charges against former President Petro Poroshenko.
+**The SBI under Z, [Roman Truba](https://abdymok.substack.com/p/putting-the-truba-tapes-in-context) and Venedyktova** has churned out a litany of absurd charges against former President Petro Poroshenko.
 
 [Image]
 
-Serious concern over z.’s intention to imprison Poroshenko has been expressed frequently by western leaders. Former President of the European Council [said](https://www.euractiv.com/section/europe-s-east/news/new-epp-chief-tusk-voices-concern-over-politically-motivated-prosecutions-in-ukraine/) in Zagreb after being elected head of the European People’s Party that "something really dangerous" could happen as a result and that "there is no room for politically motivated persecution."
+Serious concern over Z’s intention to imprison Poroshenko has been expressed frequently by western leaders. Former President of the European Council [said](https://www.euractiv.com/section/europe-s-east/news/new-epp-chief-tusk-voices-concern-over-politically-motivated-prosecutions-in-ukraine/) in Zagreb after being elected head of the European People’s Party that "something really dangerous" could happen as a result and that "there is no room for politically motivated persecution."
 
 > Tusk [warned](https://www.radiosvoboda.org/a/news-tusk-poroshenko/30284537.html) that "any attempt to intimidate opposition leaders will be a matter of concern in Europe … whenever the authorities or people in power use justice against political opponents. In any form, whether in the medium or long term, it will become a tragedy not only for victims of persecution, but for the whole country."
 
@@ -473,11 +473,11 @@ Not a single deputy from the European Solidarity, Holos and Batkivshchyna factio
 
 Venedyktova [told](https://iportal.rada.gov.ua/meeting/stenogr/show/7393.html) lawmakers during the extraordinary Rada plenary session earlier the same day that she would move quickly on more than a dozen criminal cases **implicating former President Petro Poroshenko**.
 
-Rebecca Harms, a former member of the European Parliament (2014-2019) thinks President Volodymyr z.’s decision to appoint Venedyktova is one more example of [a step in the wrong direction](https://abdymok.substack.com/p/something-has-gone-horribly-wrong) for Ukraine.
+Rebecca Harms, a former member of the European Parliament (2014-2019) thinks President Volodymyr Z’s decision to appoint Venedyktova is one more example of [a step in the wrong direction](https://abdymok.substack.com/p/something-has-gone-horribly-wrong) for Ukraine.
 
 > The new appointments after recent reshuffle of government are in conflict with major promises of Ukrainian President. His choice is not a signal for a new era of dignity, not for unity and also not for consequent fight against corruption, Harms [said](https://twitter.com/RebHarms/status/1239911057289818112) on Twitter.
 
-Harms joins a growing number of western leaders who have expressed concern over z.’s intention to imprison Poroshenko.
+Harms joins a growing number of western leaders who have expressed concern over Z’s intention to imprison Poroshenko.
 
 Former President of the European Council Donald Tusk [said](https://www.euractiv.com/section/europe-s-east/news/new-epp-chief-tusk-voices-concern-over-politically-motivated-prosecutions-in-ukraine/) in Zagreb after being elected head of the European People’s Party that "**something really dangerous**" could happen as a result and that "there is no room for politically motivated persecution."
 
@@ -485,9 +485,9 @@ Former President of the European Council Donald Tusk [said](https://www.euracti
 
 The popular ezine [Ukraine Confidential](https://ukraineconfidential.substack.com/p/all-the-presidents-men) more than a month ago sounded the alarm about the SBI’s efforts to smear Poroshenko.
 
-> z.’s men ordered investigators to put more pressure on former Ukraine President Petro Poroshenko and his associates through multiple  [criminal probes](https://www.euractiv.com/section/europe-s-east/news/ukraine-at-its-worst-is-the-new-president-targeting-his-predecessor/), the ezine said.
+> Z’s men ordered investigators to put more pressure on former Ukraine President Petro Poroshenko and his associates through multiple  [criminal probes](https://www.euractiv.com/section/europe-s-east/news/ukraine-at-its-worst-is-the-new-president-targeting-his-predecessor/), the ezine said.
 
-The article, titled [All the President’s Men](https://ukraineconfidential.substack.com/p/all-the-presidents-men), said secret recordings from the office of former SBI Director Roman Truba revealed extensive, concerted efforts by z. and his team to steer criminal investigations against political opponents.
+The article, titled [All the President’s Men](https://ukraineconfidential.substack.com/p/all-the-presidents-men), said secret recordings from the office of former SBI Director Roman Truba revealed extensive, concerted efforts by Z and his team to steer criminal investigations against political opponents.
 
 More than two dozen audio files secretly made in Truba’s office were leaked to the Internet on the “Pipe Has Burst” [Telegram channel](https://t.me/s/trubuprorvalo/).
 
@@ -675,7 +675,7 @@ European, U.S. and United Nations officials have said pre-trial detention proced
 
 [Image]
 
-Vladimir Socor from the Jamestown Foundation’s Eurasian Daily Monitor on March 19 [fleshes out](https://jamestown.org/program/ukraines-president-zelenskyy-turns-blind-eye-to-putin-medvedchuk-scheming-part-two/) motives behind Ukrainian President Volodymyr z.’s decision to harass former President Petro Poroshenko on trumped up charges, instead of investigating pro-Russia member of parliament Viktor Medvedchuk.
+Vladimir Socor from the Jamestown Foundation’s Eurasian Daily Monitor on March 19 [fleshes out](https://jamestown.org/program/ukraines-president-zelenskyy-turns-blind-eye-to-putin-medvedchuk-scheming-part-two/) motives behind Ukrainian President Volodymyr Z’s decision to harass former President Petro Poroshenko on trumped up charges, instead of investigating pro-Russia member of parliament Viktor Medvedchuk.
 
 [Image]
 
@@ -687,15 +687,15 @@ Melinda Harding, the Atlantic Council’s deputy director of Eurasia Center and 
 
 For z!team and Kremlin leaders it’s too dangerous to have someone like Poroshenko running around, so he needs to be damaged.  This practice in Byzantium, where ancient Kyiv got its religion and founding mythologies, was called [political mutilation](https://en.wikipedia.org/wiki/Political_mutilation_in_Byzantine_culture), the practice of mangling one’s rivals by disfeaturing them: slicing off noses, amputating limbs and poking out eyes.
 
-Looking on the bright side, some Kyiv insiders offer a less gruesome explanation, saying it’s entirely possible z. himself is oblivious to the efforts of his underlings to harass Poroshenko.
+Looking on the bright side, some Kyiv insiders offer a less gruesome explanation, saying it’s entirely possible Z himself is oblivious to the efforts of his underlings to harass Poroshenko.
 
-“Maybe he doesn’t care at all. What preoccupies z. most are his popularity ratings,” they say. “What he wants is applause.”
+“Maybe he doesn’t care at all. What preoccupies Z most are his popularity ratings,” they say. “What he wants is applause.”
 
 *(to be continued…)*
 
 ---
 
-## z. Wants to End a War
+## Z Wants to End a War
 
 *Date: 2020-03-21 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -845,7 +845,7 @@ Journalist Yuriy Butusov on March 25 [said](https://www.facebook.com/butusov.yur
 
 **Courchevel was a breeding ground for disease this year.**
 
-Butusov says billionaire metrosexual Valeriy Khoroshkovsky (a friend of President Volodymyr z.) was in attendance along with multimillionaire (or maybe already a billionaire) Vitaliy Khomutynnik, Kharkiv Regional Council Deputy Head Volodymyr Skorobogach, Kyiv Commercial Court Judge Viktoria Dzharty and Member of Parliament Serhiy Shakhov. Disgraced ex-head of the President’s Office Andriy Bohdan was also present. The group was seen playing oral beer pong and sharing whistles.
+Butusov says billionaire metrosexual Valeriy Khoroshkovsky (a friend of President Volodymyr Z) was in attendance along with multimillionaire (or maybe already a billionaire) Vitaliy Khomutynnik, Kharkiv Regional Council Deputy Head Volodymyr Skorobogach, Kyiv Commercial Court Judge Viktoria Dzharty and Member of Parliament Serhiy Shakhov. Disgraced ex-head of the President’s Office Andriy Bohdan was also present. The group was seen playing oral beer pong and sharing whistles.
 
 [Image]
 > It was these Ukrainian rich people who were the first to bring COVID-19 to Kyiv. Most likely, this happened by chance. The virus would have made its way to here eventually. The party people probably did not understand the consequences of their actions. Most of the merrymakers on March 8 in Courchevel either became infected with the virus or became carriers. One group of 16 Ukrainians fell very ill. They are now in intensive care boxes at Kyiv’s Oleksandrivsky Hospital. This is fate! Those who have long been accustomed to being treated in the best foreign clinics suddenly found themselves forced to seek care in the same place as ordinary mortals who do not know the word "Courchevel."
@@ -924,13 +924,13 @@ The Cabinet has not said what further steps it will take in order to contain the
 
 Alesya Batsman chatted up ex-Prosecutor General of Ukraine Ruslan Ryaboshapka on March 24 in a rambling 73-minute long interview [posted](https://bit.ly/2vLWZNE) to YouTube.
 
-President Volodymyr z. and parliament in early March expressed no-confidence in Ryaboshapka, who had refused to sign a notice of suspicion to Ukraine’s fifth President Petro Poroshenko on trumped-up charges invented by Ukraine’s State Bureau of Investigations (SBI).
+President Volodymyr Z and parliament in early March expressed no-confidence in Ryaboshapka, who had refused to sign a notice of suspicion to Ukraine’s fifth President Petro Poroshenko on trumped-up charges invented by Ukraine’s State Bureau of Investigations (SBI).
 
 Ryaboshapka, currently locked down somewhere in France, reiterates about halfway through the interview (31:00) that he did not sign the notice because the charges leveled against Poroshenko by the SBI are “legal trash” (cf. [Something Very Dangerous](https://abdymok.substack.com/p/triangle-of-justice)).
 
 [Image]
 
-Vladimir Socor from the Jamestown Foundation’s Eurasian Daily Monitor on March 19 [fleshed out](https://jamestown.org/program/ukraines-president-zelenskyy-turns-blind-eye-to-putin-medvedchuk-scheming-part-two/) motives behind Ukrainian President Volodymyr z.’s decision to harass former President Petro Poroshenko on trumped up charges, instead of investigating pro-Russia member of parliament Viktor Medvedchuk.
+Vladimir Socor from the Jamestown Foundation’s Eurasian Daily Monitor on March 19 [fleshed out](https://jamestown.org/program/ukraines-president-zelenskyy-turns-blind-eye-to-putin-medvedchuk-scheming-part-two/) motives behind Ukrainian President Volodymyr Z’s decision to harass former President Petro Poroshenko on trumped up charges, instead of investigating pro-Russia member of parliament Viktor Medvedchuk.
 
 Melinda Harding, the Atlantic Council’s deputy director of Eurasia Center and a senior fellow at the Foreign Policy Research Institute, [sounded the alarm](https://youtu.be/nQZGzOktS7c) a day earlier in an interview with Voice of America.
 
@@ -1083,15 +1083,15 @@ It’s the same story in several villages in Ternopil and Cherkasy regions. Effo
 
 The chiefs of staff of Ukraine’s presidents since 1999 (Medvedchuk, Tabachnyk, Lovochkin, et al) all had brothers and sisters, but they tried not to involve them in their corrupt activities.
 
-There was no reason for Andriy Yermak, recently appointed Volodymyr z.’s chief of staff, to buy an expensive Mercedes immediately after meeting with Russian President Vladimir Putin’s representative in Minsk. Out of decency, at least, he should have waited several months.
+There was no reason for Andriy Yermak, recently appointed Volodymyr Z’s chief of staff, to buy an expensive Mercedes immediately after meeting with Russian President Vladimir Putin’s representative in Minsk. Out of decency, at least, he should have waited several months.
 
-In ultra-competitive Ukraine-style politics, the country’s new masters of the universe, including the political hucksters who do business in Courchevel, regard Yermak as a key policy maker, a powerful person with z.’s ear who can solve problems the president does not understand.
+In ultra-competitive Ukraine-style politics, the country’s new masters of the universe, including the political hucksters who do business in Courchevel, regard Yermak as a key policy maker, a powerful person with Z’s ear who can solve problems the president does not understand.
 
 The conflict with Member of Parliament (Servant of the People faction) Geo Leros, who on Sunday posted video clips to Facebook showing Yermak’s brother Denys selling government jobs, is instructive. Subsequent attempts to smear Leros, presenting him as either Jewish or Armenian, might backfire. Recall omnipotent Interior Minister Arsen Avakov and Ukraine’s Armenian diaspora or Ihor Kolomoisky’s Jewishness. Neither will appreciate playing the ethnicity card for what should be obvious reasons.
 
 Ukraine’s law-enforcement agencies need to interrogate Andriy and Denys Yermak often and thoroughly about selling government posts.
 
-The investigation of the successful siblings will show why z. is regularly unlucky when choosing prime ministers, ministers, members of parliament, army generals, governors, et cetera.
+The investigation of the successful siblings will show why Z is regularly unlucky when choosing prime ministers, ministers, members of parliament, army generals, governors, et cetera.
 
 Turning the state’s human resources policy into a market of corrupt services and vacancies for wealthy buyers does not attract foreign investments.
 
@@ -1292,7 +1292,7 @@ Rather than testing the tens of thousands of Ukrainians returning from Europe, t
 
 ---
 
-**Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.**
+**Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.**
 
 [Image]
 
@@ -1302,29 +1302,29 @@ Rather than testing the tens of thousands of Ukrainians returning from Europe, t
 
 *Date: 2020-04-15 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. to be remembered for grisly deaths he failed to prevent*
+*Z to be remembered for grisly deaths he failed to prevent*
 
 [Image]
 
 I disagree with Atlantic Council Senior Fellow Adrian Karatnycky about lots of things. When it comes to Ukraine, he reminds me of Rinat Akhmetov’s spieler, the Anders Aslund equivalent of a ticket salesman for heavily booked Yalta Economic Strategy talkathons.
 
-But sometimes he makes good lists. Take, for example, the following paragraph in his 1,000-world op-ed, titled “[z. puts Ukraine’s Maidan Revolution on trial](https://www.atlanticcouncil.org/blogs/ukrainealert/zelenskyy-puts-ukraines-maidan-revolution-on-trial/),” appearing in the Atlantic Council’s Ukraine Alert on April 14.
+But sometimes he makes good lists. Take, for example, the following paragraph in his 1,000-world op-ed, titled “[Z puts Ukraine’s Maidan Revolution on trial](https://www.atlanticcouncil.org/blogs/ukrainealert/zelenskyy-puts-ukraines-maidan-revolution-on-trial/),” appearing in the Atlantic Council’s Ukraine Alert on April 14.
 
 [Image]
 
-Kowtowing to Putin, rearranging the Cabinet and prosecuting former President Petro Poroshenko - and now Tetyana Chornovol - have indeed tarnished z.’s credentials among Ukraine’s partners. But future generations of Ukrainians will likely most revile z. for botching the country’s response to the severe acute respiratory syndrome coronavirus 2 (SARS-CoV-2**)** epidemic.
+Kowtowing to Putin, rearranging the Cabinet and prosecuting former President Petro Poroshenko - and now Tetyana Chornovol - have indeed tarnished Z’s credentials among Ukraine’s partners. But future generations of Ukrainians will likely most revile Z for botching the country’s response to the severe acute respiratory syndrome coronavirus 2 (SARS-CoV-2**)** epidemic.
 
-It’s difficult to establish exactly the moment during z.’s ten months as president when function lost its lustre, when churning out hopeful-sounding memes became secondary to their presentation on YouTube, when the cult of haughty ego took hold.
+It’s difficult to establish exactly the moment during Z’s ten months as president when function lost its lustre, when churning out hopeful-sounding memes became secondary to their presentation on YouTube, when the cult of haughty ego took hold.
 
 Perhaps it was on March 4 in the Verkhovna Rada after members of parliament approved Illia Yemets, [a Yanukovych-era hack](https://abdymok.substack.com/p/indidious-blandishments), to be the country’s new Health Minister.
 
 [Image]
 
-You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim and paying too much attention to the horribleness of the grisly deaths z. failed to prevent.
+You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim and paying too much attention to the horribleness of the grisly deaths Z failed to prevent.
 
 ---
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -1355,23 +1355,23 @@ Or, the items could be designed the other way around. They could make pots and p
 
 [Image]
 
-As we pause to reflect on the one-year anniversary of Volodymyr z.’s election victory, it’s helpful to remind ourselves of his close relationship with President Donald Trump and what that has meant for Ukraine and the United States.
+As we pause to reflect on the one-year anniversary of Volodymyr Z’s election victory, it’s helpful to remind ourselves of his close relationship with President Donald Trump and what that has meant for Ukraine and the United States.
 
-Since z. was elected, dialectical discourse has died in Ukraine, where *thesis* and its *antithesis* are now irrelevant.
+Since Z was elected, dialectical discourse has died in Ukraine, where *thesis* and its *antithesis* are now irrelevant.
 
 The Hegelian approach no longer applies. Evolving real ideas is passé. Reality can no longer be expressed in rational categories.
 
 Arguments have been replaced by 47-second video clips decorated with pink unicorns and punchlines. These messages are posted on a need-to-know basis.
 
-Ukrainians thank z. for not agreeing to hold press conferences, because confrontational exchanges of ideas could hurt voters instead of benefiting them, muddling perceptions and previously accepted facts.
+Ukrainians thank Z for not agreeing to hold press conferences, because confrontational exchanges of ideas could hurt voters instead of benefiting them, muddling perceptions and previously accepted facts.
 
-Ukrainians are lucky z. has a great sense of humor. He also has ideas about how best to end the war with Russia and battle corruption. The reason we don’t know what these ideas are is because z. is busy combating the spread of COVID-19 and hasn’t had time to distill them into Instagram posts.
+Ukrainians are lucky Z has a great sense of humor. He also has ideas about how best to end the war with Russia and battle corruption. The reason we don’t know what these ideas are is because Z is busy combating the spread of COVID-19 and hasn’t had time to distill them into Instagram posts.
 
 ---
 
 [Image]
 
-[April 21, 2019 Phone Call between Trump and z.](https://edition.cnn.com/2019/11/15/politics/read-white-house-transcript-trump-zelensky-call/index.html)
+[April 21, 2019 Phone Call between Trump and Z](https://edition.cnn.com/2019/11/15/politics/read-white-house-transcript-trump-zelensky-call/index.html)
 
 ---
 
@@ -1394,7 +1394,7 @@ It’s day whatever of Ukraine’s epidemic disaster and my beloved award-winnin
 >
 > Since then, the government has gradually ratcheted up the restrictions. Today, the country is largely on lockdown, with non-essential businesses closed down, mass transit restricted and borders closed.
 
-This is bullshit, of course. President Volodymyr z.’s lack of preparedness, slow response and almost no testing until a week ago has resulted in a disaster that is just beginning to unfold.
+This is bullshit, of course. President Volodymyr Z’s lack of preparedness, slow response and almost no testing until a week ago has resulted in a disaster that is just beginning to unfold.
 
 In a nutshell, Ukraine was unprepared, slow to act, did not test, trace and quarantine, did not use data and tech, was not aggressive, did not get the private sector very involved and failed to respect privacy.
 
@@ -1406,9 +1406,9 @@ In a nutshell, Ukraine was unprepared, slow to act, did not test, trace and quar
 
 Ukraine’s new Cabinet on March 25 [declared](https://abdymok.substack.com/p/emergency-situation-regime) an Emergency Situation Regime. Five days later, the country’s [moronic former Health Minister Illia Yemets](https://abdymok.substack.com/p/indidious-blandishments), a Yanukovych-era hack, was sacked. But by then community spread of the virus in all 27 regions of Ukraine was rampant, fueled by germy Russian Orthodox priests, millionaire members of parliament who didn’t wash their hands at Courchevel and tens of thousands of migrant workers, who were marched like cattle across the Poland-Ukraine border.
 
-z.’s decision in late March to [install](https://abdymok.substack.com/p/stepanov-from-gynecology-to-gas) Maksym Stepanov, Ihor Kolomoisky’s gynecologist turned gas trader, as health minister brought a method, or “[algorithm](https://abdymok.substack.com/p/ukraines-new-algorithm),” to the madness, but it changes often, sometimes several times during one day, depending on the president’s mood.
+Z’s decision in late March to [install](https://abdymok.substack.com/p/stepanov-from-gynecology-to-gas) Maksym Stepanov, Ihor Kolomoisky’s gynecologist turned gas trader, as health minister brought a method, or “[algorithm](https://abdymok.substack.com/p/ukraines-new-algorithm),” to the madness, but it changes often, sometimes several times during one day, depending on the president’s mood.
 
-As of this writing, the result isn't unlike a [horrible accident](https://abdymok.substack.com/p/not-unlike-a-horrible-accident), except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim and paying too much attention to the horribleness of the grisly deaths z. has failed to prevent.
+As of this writing, the result isn't unlike a [horrible accident](https://abdymok.substack.com/p/not-unlike-a-horrible-accident), except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim and paying too much attention to the horribleness of the grisly deaths Z has failed to prevent.
 
 ---
 
@@ -1420,17 +1420,17 @@ As of this writing, the result isn't unlike a [horrible accident](https://abdymo
 
 *Date: 2020-04-18 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*Volodymyr z. thinks he's doing a great job*
+*Volodymyr Z thinks he's doing a great job*
 
 [Image]
 
-It’s day whatever of Ukraine’s COVID-19 disaster and President Volodymyr z. has said government’s response to the pandemic was timely. He’s even made the observation “[top news](https://www.president.gov.ua/en/news/ukrayina-vchasno-vidreaguvala-na-pandemiyu-koronavirusu-volo-60709)” on the President’s Office website.
+It’s day whatever of Ukraine’s COVID-19 disaster and President Volodymyr Z has said government’s response to the pandemic was timely. He’s even made the observation “[top news](https://www.president.gov.ua/en/news/ukrayina-vchasno-vidreaguvala-na-pandemiyu-koronavirusu-volo-60709)” on the President’s Office website.
 
-> “…Since the first day of the threat of coronavirus in Ukraine, the Office of the President has been actively involved in providing the healthcare system with the necessary medical means. In particular, more than 20 planes were sent to China and other countries to deliver protection means, coronavirus tests and other special equipment to Ukraine.” z. said during the Svoboda Slova TV show [aired](https://www.youtube.com/watch?time_continue=1628&v=Gqt3KYUopPY) on Friday evening.
+> “…Since the first day of the threat of coronavirus in Ukraine, the Office of the President has been actively involved in providing the healthcare system with the necessary medical means. In particular, more than 20 planes were sent to China and other countries to deliver protection means, coronavirus tests and other special equipment to Ukraine.” Z said during the Svoboda Slova TV show [aired](https://www.youtube.com/watch?time_continue=1628&v=Gqt3KYUopPY) on Friday evening.
 
-**This is bullshit, of course.** Under z., community spread of SARS-CoV-2 in all 27 regions of Ukraine has been rampant for months, thanks to germy Russian Orthodox priests, millionaire MPs who didn’t wash their hands in Courchevel and tens of thousands of migrant workers, who two weeks ago were marched like cattle across the Poland-Ukraine border.
+**This is bullshit, of course.** Under Z, community spread of SARS-CoV-2 in all 27 regions of Ukraine has been rampant for months, thanks to germy Russian Orthodox priests, millionaire MPs who didn’t wash their hands in Courchevel and tens of thousands of migrant workers, who two weeks ago were marched like cattle across the Poland-Ukraine border.
 
-z.’s decision **in late March** to [install](https://abdymok.substack.com/p/stepanov-from-gynecology-to-gas) Maksym Stepanov, Ihor Kolomoisky’s gynecologist turned gas trader, as health minister brought a method, or “[algorithm](https://abdymok.substack.com/p/ukraines-new-algorithm),” to cleaning up the mess, but it has changed often, sometimes several times during one day, depending on the president’s mood.
+Z’s decision **in late March** to [install](https://abdymok.substack.com/p/stepanov-from-gynecology-to-gas) Maksym Stepanov, Ihor Kolomoisky’s gynecologist turned gas trader, as health minister brought a method, or “[algorithm](https://abdymok.substack.com/p/ukraines-new-algorithm),” to cleaning up the mess, but it has changed often, sometimes several times during one day, depending on the president’s mood.
 
 As of this writing, the result isn't unlike a [horrible accident](https://abdymok.substack.com/p/not-unlike-a-horrible-accident), except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim and paying too much attention to the horribleness of the grisly deaths Ukraine’s president has failed to prevent.
 
@@ -1440,7 +1440,7 @@ As of this writing, the result isn't unlike a [horrible accident](https://abdym
 
 ---
 
-## 'z.' May Call it Quits
+## 'Z' May Call it Quits
 
 *Date: 2020-04-19 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -1448,18 +1448,18 @@ As of this writing, the result isn't unlike a [horrible accident](https://abdym
 
 [Image]
 
-Ukrainian President Volodymyr z. could resign on his own volition, Dnipro native [Hennadiy Korban](https://en.wikipedia.org/wiki/Hennadiy_Korban) has said.
+Ukrainian President Volodymyr Z could resign on his own volition, Dnipro native [Hennadiy Korban](https://en.wikipedia.org/wiki/Hennadiy_Korban) has said.
 
 > “It seems to me that, maybe in a year, he will say, ‘I'm sorry,’ and walk away.”
 
 [Image]
-> "z.’s true intentions, I think, were quite good. But, unfortunately, in addition to good motives and qualities, you also need to know something. You must work hard, be diligent and have the ability to delve into issues and - most importantly - communicate with people. It’s not enough for him to ensconce himself in a close circle of friends and former classmates,” Korban said.
+> "Z’s true intentions, I think, were quite good. But, unfortunately, in addition to good motives and qualities, you also need to know something. You must work hard, be diligent and have the ability to delve into issues and - most importantly - communicate with people. It’s not enough for him to ensconce himself in a close circle of friends and former classmates,” Korban said.
 
-Korban said z. should have started to educate himself after embarking on his new profession as a politician.
+Korban said Z should have started to educate himself after embarking on his new profession as a politician.
 
 > “If he would have started studying, delving into issues and building some kind of model in his head, then he would be interested. This would have been productive and positive,” Korban said.
 
-On whether z. could be removed from office, Korban said: “I don’t think so. He is elected absolutely constitutionally, legally. “He can only be pushed out if there is a military coup or if he commits an impeachable offense,” he said.
+On whether Z could be removed from office, Korban said: “I don’t think so. He is elected absolutely constitutionally, legally. “He can only be pushed out if there is a military coup or if he commits an impeachable offense,” he said.
 
 > “But he’s unlikely to do something like that, because he’s afraid to do anything. He’s just a robot in this regard. I think he’ll get tired and understand that this is not his field of activity,” he said.
 
@@ -1493,11 +1493,11 @@ cf. [Botched pandemic response](https://www.kyivpost.com/ukraine-politics/disord
 
 Z yesterday released a 51-minute [hagiographical documentary film](https://www.youtube.com/watch?v=TOUQTHo_rOk) with himself chatting up his first year as president. This is the same jerk who assured us that he and Ukraine’s government had the situation under control.
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
-z. then set the political agenda for the country’s health care experts, which explains Ukraine’s fucked up COVID-19 response to date.
+Z then set the political agenda for the country’s health care experts, which explains Ukraine’s fucked up COVID-19 response to date.
 
 ---
 
@@ -1507,7 +1507,7 @@ In related news, the SBU State Security Service has [closed down](https://www.ss
 
 ---
 
-## What's That Stuck to z.'s Ass?
+## What's That Stuck to Z's Ass?
 
 *Date: 2020-04-25 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -1578,17 +1578,17 @@ In other news, there’s a hole in the bucket. Six of them, actually, punched wi
 
 *Date: 2020-04-30 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. wants to know how many people need to die to shore up the economy*
+*Z wants to know how many people need to die to shore up the economy*
 
 [Image]
 
 (**Illustration by Mykhailo Aleksandrov for Mysl**)
 
-It’s difficult to establish exactly the moment during President Volodymyr z.’s ten months as president when function lost its lustre, when churning out hopeful-sounding memes became secondary to their presentation on Instagram, when the cult of haughty ego took hold.
+It’s difficult to establish exactly the moment during President Volodymyr Z’s ten months as president when function lost its lustre, when churning out hopeful-sounding memes became secondary to their presentation on Instagram, when the cult of haughty ego took hold.
 
 Perhaps it was on March 4 in the Verkhovna Rada after members of parliament approved Illia Yemets, [a Yanukovych-era hack](https://abdymok.substack.com/p/indidious-blandishments), as the country’s new Health Minister.
 
-z. clapped.
+Z clapped.
 
 The result isn't unlike a horrible accident, except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a COVID-19 victim.
 
@@ -1596,11 +1596,11 @@ The result isn't unlike a horrible accident, except it’s been caused by an une
 
 Today, as the number of confirmed cases is increasing amid attempts by z!team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths Ukraine’s president has already failed to prevent.
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
-Try to remember what z. *did* to prepare for disaster in February and March.
+Try to remember what Z *did* to prepare for disaster in February and March.
 
 ---
 
@@ -1644,7 +1644,7 @@ Moral of this story: Run for the hills.
 
 ---
 
-## Sick of z.'s bullshit
+## Sick of Z's bullshit
 
 *Date: 2020-05-05 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -1652,25 +1652,25 @@ Moral of this story: Run for the hills.
 
 [Image]
 
-President Volodymyr z. has emerged from the current stage of the epidemic as the popular paragon of political sloppiness and goonery. If we enter the *next* wave of Ukraine’s COVID-19 disaster with the same greasy clown in charge, all hell might break loose.
+President Volodymyr Z has emerged from the current stage of the epidemic as the popular paragon of political sloppiness and goonery. If we enter the *next* wave of Ukraine’s COVID-19 disaster with the same greasy clown in charge, all hell might break loose.
 
-Imagine the plight of z.’s speechwriters. Putting words in the mouth of a man whose hole already overflows with words of his own must be frustrating.
+Imagine the plight of Z’s speechwriters. Putting words in the mouth of a man whose hole already overflows with words of his own must be frustrating.
 
-Consider z.’s YouTube [monologue](https://www.president.gov.ua/en/news/poslablennya-karantinu-ta-drugij-etap-medichnoyi-reformi-zve-60981) on May 4, when he said 120,000 Ukrainians would die by the end of the year if the quarantine is lifted tomorrow. The president then rambled on for six minutes about how he wants to help fix the country’s healthcare system.
+Consider Z’s YouTube [monologue](https://www.president.gov.ua/en/news/poslablennya-karantinu-ta-drugij-etap-medichnoyi-reformi-zve-60981) on May 4, when he said 120,000 Ukrainians would die by the end of the year if the quarantine is lifted tomorrow. The president then rambled on for six minutes about how he wants to help fix the country’s healthcare system.
 
 [Image]
 
-It is unlikely z. will step down or be removed. That means qualified pediatricians will either have to put up with his bullshit or leave the country.
+It is unlikely Z will step down or be removed. That means qualified pediatricians will either have to put up with his bullshit or leave the country.
 
 ---
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
-Try to remember what z. *did* to prepare for disaster in February and March.
+Try to remember what Z *did* to prepare for disaster in February and March.
 
-cf. [The Death of Healthcare Reform c/o z.](https://nv.ua/opinion/zelenskiy-i-medreforma-komu-vygodna-otmena-vtorogo-etapa-novosti-ukrainy-50086219.html)
+cf. [The Death of Healthcare Reform c/o Z](https://nv.ua/opinion/zelenskiy-i-medreforma-komu-vygodna-otmena-vtorogo-etapa-novosti-ukrainy-50086219.html)
 
 ---
 
@@ -1690,7 +1690,7 @@ The country’s president is a proud ignoramus. He did not prepare a platform to
 
 ---
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31, 2020 about the COVID-19 pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31, 2020 about the COVID-19 pandemic.
 
 [Image]
 
@@ -1702,7 +1702,7 @@ It’s not rare for incompetent people to think they are amazing, or for skilled
 
 ---
 
-## z.'s Covid Clowns
+## Z's Covid Clowns
 
 *Date: 2020-05-06 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -1712,13 +1712,13 @@ It’s not rare for incompetent people to think they are amazing, or for skilled
 
 (illustration by [Oleh Smal](https://www.facebook.com/olegsmalart?__tn__=%2Cd*F*F-R&eid=ARDKU4-a1paZEZRg3XnckB5g-nJJopyR_vh_kIfYsJGyGaPYqSPKT3CZJW1Ch8mvWAvotsaR_eNq9_68&tn-str=*F))
 
-*It’s too bad western journalists who write about Ukraine have difficulty understanding Russian, much less Ukrainian. That ability might enable them to understand, at least, why the president and his mono-majority’s MPs are increasingly regarded as self-serving creeps. The crisis has so far offered a convenient pretext for President Volodymyr z. to consolidate power, but the act is already wearing thin.*
+*It’s too bad western journalists who write about Ukraine have difficulty understanding Russian, much less Ukrainian. That ability might enable them to understand, at least, why the president and his mono-majority’s MPs are increasingly regarded as self-serving creeps. The crisis has so far offered a convenient pretext for President Volodymyr Z to consolidate power, but the act is already wearing thin.*
 
-z. and his Servant of the People faction in parliament have so far failed to assist healthcare workers who are battling the coronavirus epidemic. They are only interested in ‘political dividends,’ according to critics in parliament.
+Z and his Servant of the People faction in parliament have so far failed to assist healthcare workers who are battling the coronavirus epidemic. They are only interested in ‘political dividends,’ according to critics in parliament.
 
 "The bill on medical insurance, co-authored by former President Petro Poroshenko, is straightforward. If a doctor gets sick, he will receive about UAH 200,000 from this insurance. If, God forbid, the healthcare worker dies because of COVID-19, then his or her family will receive about UAH 500,000," co-Chairman of the European Solidarity faction Artur Herasymov (European Solidarity faction) said on Wednesday.
 
-> "I already know that because of 'political dividends,' z. and the 'servants of the people' don't give a damn about doctors. For them, this bill is a provocation, and they need 'political dividends.' I think the whole country learned about this yesterday. They are now registering an alternative bill in order to reap 'political dividends.' If you want, make a full copy of Poroshenko's bill and bring it up in the chamber for a vote! The main thing is to adopt the bill. You don't need to divide parliament into opposition and pro-government. You need to unite and provide assistance as quickly as possible. We need to survive the epidemic, protect healthcare workers and Ukrainian citizens," Herasymov said.
+> "I already know that because of 'political dividends,' Z and the 'servants of the people' don't give a damn about doctors. For them, this bill is a provocation, and they need 'political dividends.' I think the whole country learned about this yesterday. They are now registering an alternative bill in order to reap 'political dividends.' If you want, make a full copy of Poroshenko's bill and bring it up in the chamber for a vote! The main thing is to adopt the bill. You don't need to divide parliament into opposition and pro-government. You need to unite and provide assistance as quickly as possible. We need to survive the epidemic, protect healthcare workers and Ukrainian citizens," Herasymov said.
 
 The lawmaker reiterated that if the parliamentary mono-majority wants "political dividends" and to be applauded, it can copy Poroshenko's bill and pass it.
 
@@ -1746,11 +1746,11 @@ The changes floated by Maksym Stepanov appear especially irrelevant to today’s
 
 While the number of confirmed cases in recent days has plateaued amid attempts by z!team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths the country’s leaders have already failed to prevent.
 
-President Volodymyr z. announced early this year that he had the situation under control.
+President Volodymyr Z announced early this year that he had the situation under control.
 
 [Image]
 
-What z. actually *did* to prepare for disaster in February and March is anyone’s guess.
+What Z actually *did* to prepare for disaster in February and March is anyone’s guess.
 
 Germy priests, jetsetting members of parliament and migrant workers returning home brought the virus to Ukraine from Europe. By April, they had infected communities in every region of the country.
 
@@ -1831,7 +1831,7 @@ Rather than testing the tens of thousands of Ukrainians returning from Europe, t
 
 > "The government decided yesterday to oblige all returning Ukrainians to undergo observation in places determined by the regional state administrations. The decision obliges all returning Ukrainians who came in contact with the virus to isolate themselves. If self-isolation cannot be ensured at home, these people will be sent for observation," Liashko [said](https://interfax.com.ua/news/general/650924.html).
 
-And recall what President Volodymyr z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+And recall what President Volodymyr Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -1885,7 +1885,7 @@ Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postav
 
 Try to remember what Z *did* to prepare for disaster in February and March.
 
-cf. [The Death of Healthcare Reform c/o z.](https://nv.ua/opinion/zelenskiy-i-medreforma-komu-vygodna-otmena-vtorogo-etapa-novosti-ukrainy-50086219.html)
+cf. [The Death of Healthcare Reform c/o Z](https://nv.ua/opinion/zelenskiy-i-medreforma-komu-vygodna-otmena-vtorogo-etapa-novosti-ukrainy-50086219.html)
 
 ---
 
@@ -1927,7 +1927,7 @@ Ukraine’s Infrastructure Ministry, meanwhile, has published a very confusing t
 
 At the beginning of the outbreak, Ukraine had a chance to contain the novel virus by identifying each person bringing the infection into the country and stopping it before it spread in the community.
 
-President Volodymyr z. [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
+President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
 
 [Image]
 
@@ -1951,23 +1951,23 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 *The common sense worship of lemmings must be resisted for the ideology-prone conservative laziness that it is. It’s analytic philosophy’s equivalent of the continental habit of prefacing everything with “perhaps” and putting it in the plural just for kicks*.
 
-Which brings us to Volodymyr z.’s metrosexual former associates, ex-Prime Minister Oleksiy Honcharuk and ex-Prosecutor General Ruslan Ryaboshapka, who are saying the president has isolated himself from common sense and is locked up in an information cocoon inhabited by family members and close associates.
+Which brings us to Volodymyr Z’s metrosexual former associates, ex-Prime Minister Oleksiy Honcharuk and ex-Prosecutor General Ruslan Ryaboshapka, who are saying the president has isolated himself from common sense and is locked up in an information cocoon inhabited by family members and close associates.
 
 Beloved Ukraine Expert Melinda Haring, Deputy Director of the Eurasia Center of the esteemed Atlantic Council has [characterized](https://www.atlanticcouncil.org/blogs/ukrainealert/enough-already/) Honcharuk and Ryaboshapka as *excellent*. We are all confused, so let’s take a look at what these sacked officials are saying.
 
 Honcharuk didn’t mince words in an oddly-worded Facebook [rant](https://www.facebook.com/Oleksiy.Honcharuk/photos/a.104707587575828/268137524566166/?type=3&theater) posted on May 14.
 
-> An information field has been created around the President, which, in my opinion, continues to form a misconception about the situation in the country and, in particular, about the "inefficiency" of our Government. After the first dissatisfaction, the team "disintegrated,” and the first category of people "purged" to boost [z.’s] ratings. The president and his inner circle were left alone with the adapters. The situation today more complicated: the "honeymoon" is over, and making changes will be much more difficult.
+> An information field has been created around the President, which, in my opinion, continues to form a misconception about the situation in the country and, in particular, about the "inefficiency" of our Government. After the first dissatisfaction, the team "disintegrated,” and the first category of people "purged" to boost [Z’s] ratings. The president and his inner circle were left alone with the adapters. The situation today more complicated: the "honeymoon" is over, and making changes will be much more difficult.
 
-One day earlier, in a 6,000-word [interview](https://lb.ua/news/2020/05/13/457415_ryaboshapka_na_zustrichi_z.html) published on the Kyiv-based Left Bank ezine, Ryaboshapka spilled the beans about z.’s knowledge about ***very very very*** trumped up charges against former President Petro Poroshenko drafted by investigators at the State Bureau of Investigations (SBI).
+One day earlier, in a 6,000-word [interview](https://lb.ua/news/2020/05/13/457415_ryaboshapka_na_zustrichi_z.html) published on the Kyiv-based Left Bank ezine, Ryaboshapka spilled the beans about Z’s knowledge about ***very very very*** trumped up charges against former President Petro Poroshenko drafted by investigators at the State Bureau of Investigations (SBI).
 
 [Image]
 
-Politically motivated criminal charges meant to undermine the Revolution of Dignity and Ukraine’s Euro-Atlantic, reformist trajectory are less “silly” than they are dangerous, observed Ariana Gic, who on May 11 [opined](https://www.facebook.com/photo.php?fbid=10163855387500624&set=a.10155572505635624&type=3&theater): “It’s remarkable that silly pro-z. positioning for a year- despite facts - isn’t a credibility killer.”
+Politically motivated criminal charges meant to undermine the Revolution of Dignity and Ukraine’s Euro-Atlantic, reformist trajectory are less “silly” than they are dangerous, observed Ariana Gic, who on May 11 [opined](https://www.facebook.com/photo.php?fbid=10163855387500624&set=a.10155572505635624&type=3&theater): “It’s remarkable that silly pro-Z positioning for a year- despite facts - isn’t a credibility killer.”
 
 ---
 
-*More info about selective justice in Ukraine under z. - [archive](https://abdymok.substack.com/archive):*
+*More info about selective justice in Ukraine under Z - [archive](https://abdymok.substack.com/archive):*
 
 [Image]
 
@@ -1982,9 +1982,9 @@ Politically motivated criminal charges meant to undermine the Revolution of Dign
 [Image]
 *( Clockwise from top left: Atlantic Council Deputy Director Melinda Haring, Atlantic Council Eurasia Center Senior Fellow Andrian Karatnycky, Atlantic Council Resident Fellow Anders Aslund and ex-Minister of Economic Trade, Development and Agriculture Dr. Tymofiy Mylovanov )*
 
-It was definitely not some form of self-loathing that drove these four experts to talk more than an hour about Ukraine during the video conference titled “z. at home: One year of economic reform?” on May 15. The event was sponsored by the Atlantic Council’s [Eurasia Center](https://www.atlanticcouncil.org/programs/eurasia-center/), the stated aim of which is to promote policies that strengthen stability, democratic values, and prosperity in Eurasia.
+It was definitely not some form of self-loathing that drove these four experts to talk more than an hour about Ukraine during the video conference titled “Z at home: One year of economic reform?” on May 15. The event was sponsored by the Atlantic Council’s [Eurasia Center](https://www.atlanticcouncil.org/programs/eurasia-center/), the stated aim of which is to promote policies that strengthen stability, democratic values, and prosperity in Eurasia.
 
-Karatnycky said in his opening statement that it’s difficult to assess what z. is all about. Twice.
+Karatnycky said in his opening statement that it’s difficult to assess what Z is all about. Twice.
 
 Anders concurred, noting the absence of a government program.
 
@@ -2026,7 +2026,7 @@ He later identified another problem.
 
 The panelists covered many interesting topics during their chit chat, especially Dr. Mylovanov, who said he agreed originally to enter government for pragmatic reasons and may write up - special for Atlantic Council - what he called his “Alice in Wonderland” experience.
 
-It’s probably worth mentioning that **Ukraine has a parliamentary-presidential form of government.** Although z. was elected president in April 2019, his appointments were confirmed only in late August. “**Eight months of economic reform**” would have been a more apt subtitle for the discussion (without the question mark), or maybe even “**Five months of economic reform**,” ending with the sacking of government in early March 2020 and start of Ukraine’s COVID-19 disaster.
+It’s probably worth mentioning that **Ukraine has a parliamentary-presidential form of government.** Although Z was elected president in April 2019, his appointments were confirmed only in late August. “**Eight months of economic reform**” would have been a more apt subtitle for the discussion (without the question mark), or maybe even “**Five months of economic reform**,” ending with the sacking of government in early March 2020 and start of Ukraine’s COVID-19 disaster.
 
 (*to be continued*)
 
@@ -2040,7 +2040,7 @@ It’s probably worth mentioning that **Ukraine has a parliamentary-presidential
 
 [Image]
 
-Every subculture has a sort of blasé disdain for obvious beginner arguments even if they are solid points. Like how Ukraine experts are like oh you think us changing our opinions about President Volodymyr z. every few months means we are full of shit?
+Every subculture has a sort of blasé disdain for obvious beginner arguments even if they are solid points. Like how Ukraine experts are like oh you think us changing our opinions about President Volodymyr Z every few months means we are full of shit?
 
 The reason many don’t do so publicly is probably a matter of dignity, and the fact they have not addressed this issue specifically in public is a crucial part of their argument. Just trying to nudge history in the right direction is passé.
 
@@ -2062,9 +2062,9 @@ The most common path to a career reinvention involves doing something on the sid
 
 [Image]
 
-*Another subtitle could have been A Year of Bad Thinking, but I’m saving that for after the press conference on Wednesday. As I [noted](https://abdymok.substack.com/p/the-bright-side-of-shame) the other day, it’s probably worth mentioning that **Ukraine has a parliamentary-presidential form of government.** Although z. was elected president in April 2019, his appointments were confirmed only in late August.*
+*Another subtitle could have been A Year of Bad Thinking, but I’m saving that for after the press conference on Wednesday. As I [noted](https://abdymok.substack.com/p/the-bright-side-of-shame) the other day, it’s probably worth mentioning that **Ukraine has a parliamentary-presidential form of government.** Although Z was elected president in April 2019, his appointments were confirmed only in late August.*
 
-Ukrainian President Volodymyr z. (Z) is fated to act by what has led up to the current moment. The past has set the stage for the next catastrophe, as a prologue does in a play. But this isn’t theater and there is no such thing as destiny.
+Ukrainian President Volodymyr Z (Z) is fated to act by what has led up to the current moment. The past has set the stage for the next catastrophe, as a prologue does in a play. But this isn’t theater and there is no such thing as destiny.
 
 Ukraine’s internal security situation has reached a critical juncture. Russia’s military occupation of Crimea and areas of eastern Ukraine have produced a state of near cataplexy in the President’s Office.
 
@@ -2084,21 +2084,21 @@ Z, unfortunately, is not a logical positivist. He’s a cataplectic [non-cogniti
 
 [From [Z and the Golden Pyramid](https://medium.com/@abdymok/ze-and-the-golden-pyramid-guy-d486b34ba0e9). April 6, 2019]
 
-Showman and presidential candidate Volodymyr z. sat down with well-known Kyiv-based con artist Dmytro Gordon ([golden pyramid](https://www.youtube.com/watch?v=_NmvkH4CwvM)) in late December 2018. The men chatted for almost four hours straight about life on the planet earth.
+Showman and presidential candidate Volodymyr Z sat down with well-known Kyiv-based con artist Dmytro Gordon ([golden pyramid](https://www.youtube.com/watch?v=_NmvkH4CwvM)) in late December 2018. The men chatted for almost four hours straight about life on the planet earth.
 
-The three-part dialogue was posted to YouTube days before z. announced his candidacy for president on New Year’s Eve 2018.
+The three-part dialogue was posted to YouTube days before Z announced his candidacy for president on New Year’s Eve 2018.
 
-z. comes across as a likeable guy with many interesting stories. He tells the pyramid guy that he hasn’t decided whether or not to run for president, but it’s obvious he has.
+Z comes across as a likeable guy with many interesting stories. He tells the pyramid guy that he hasn’t decided whether or not to run for president, but it’s obvious he has.
 
-**[Part 1](https://www.youtube.com/watch?v=P8OBR9yjgFA)** is boring. skip it. **[Part 2](https://www.youtube.com/watch?v=fwuOfFlLn88)** is all about politics and what z. will do if elected president.
+**[Part 1](https://www.youtube.com/watch?v=P8OBR9yjgFA)** is boring. skip it. **[Part 2](https://www.youtube.com/watch?v=fwuOfFlLn88)** is all about politics and what Z will do if elected president.
 
-**[35.07]** z. talks about how great ruling by referendum is, saying it’s the best way to end Russia’s war against Ukraine. Z’s plan to end the war is for a Ukrainian delegation to go to Moscow and make a list of what the Kremlin wants. Ukraine then makes a list of what it wants.
+**[35.07]** Z talks about how great ruling by referendum is, saying it’s the best way to end Russia’s war against Ukraine. Z’s plan to end the war is for a Ukrainian delegation to go to Moscow and make a list of what the Kremlin wants. Ukraine then makes a list of what it wants.
 
 “Somewhere in the middle we would agree,” Z says. The ***somewhere*** (compromise list) would be put to a referendum vote in Ukraine.
 
 [Z’s plan is not a terribly bright one. Democracy flourishes when governments protect the ***smallest***minority against the majority, in countries where ***individual rights*** — not society at large, not the ‘greater good,’ or the world as a whole — are paramount. Ruling elites should probably have a bigger say]
 
-**[38.38]** About participating televised debates between presidential candidates. z. says he doesn’t think it will be possible to have a dialogue with Poroshenko in a presidential debate. “It will be his long monologue and my response,” Z says, adding he will react if insulted.
+**[38.38]** About participating televised debates between presidential candidates. Z says he doesn’t think it will be possible to have a dialogue with Poroshenko in a presidential debate. “It will be his long monologue and my response,” Z says, adding he will react if insulted.
 
 **[42.44]** Z expresses admiration for ex Georgia President Mikheil Saakashvili and his “ends justify the means” approach to running things.
 
@@ -2122,12 +2122,12 @@ z. comes across as a likeable guy with many interesting stories. He tells the py
 
 *There is no theory of epistemology that prioritizes “truth over facts” in ultra-competitive Ukraine-style politics, unless we get metaphysical, eat a bunch of mushrooms and contemplate reverse epistocracy and doublespeak incoheretism, so I’ll be brief.*
 
-The first year of President Volodymyr z.’s presidency is best described as *[cataplectic](https://abdymok.substack.com/p/cataplectic-non-cognitivism)*.
+The first year of President Volodymyr Z’s presidency is best described as *[cataplectic](https://abdymok.substack.com/p/cataplectic-non-cognitivism)*.
 
 **In a nutshell:**
 
-- **Bootlickery.** z. *agreed* in September 2019 to go to a mic and announce investigations into Burisma/Biden at the behest of U.S. President Donald Trump, who was later impeached for blackmailing an ally.
-- **Russia’s invasion.** Ukraine has made zero (0) progress to end Russia’s occupation of Crimea and parts of eastern Ukraine. z.’s magical presidential campaign promise to end the war was just that.
+- **Bootlickery.** Z *agreed* in September 2019 to go to a mic and announce investigations into Burisma/Biden at the behest of U.S. President Donald Trump, who was later impeached for blackmailing an ally.
+- **Russia’s invasion.** Ukraine has made zero (0) progress to end Russia’s occupation of Crimea and parts of eastern Ukraine. Z’s magical presidential campaign promise to end the war was just that.
 - **The economy.** cf. [Operation Y](https://medium.com/@abdymok/operation-y-b2d557374ca7)
 - **Reforms.** What reforms? [Putting the Truba tapes in context](https://abdymok.substack.com/p/putting-the-truba-tapes-in-context)
 - **Civil liberties.** None left. cf. [Thug Life](https://abdymok.substack.com/p/thug-life)
@@ -2137,7 +2137,7 @@ The first year of President Volodymyr z.’s presidency is best described as *[c
 
 **COVID-19 response\***
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -2153,19 +2153,19 @@ Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-posta
 
 *Date: 2020-05-20 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*President Volodymyr z.'s ineffable communication failure*
+*President Volodymyr Z's ineffable communication failure*
 
 [Image]
 
-It was a pathetic performance, one of Volodymyr z.’s worst.
+It was a pathetic performance, one of Volodymyr Z’s worst.
 
 There were few difficult questions during the hours-long ordeal, marked by long diatribes. Ukraine’s president lost his train of thought several times during the three-hour press conference in Kyiv and had to be reminded by his handlers what he was talking about.
 
-z. appeared eager to talk about leaked recordings made in the office of his predecessor, Ukraine’s fifth President Petro Poroshenko. (Snippets of conversations between Poroshenko and former U.S. Secretary of State John Kerry and former U.S. President Joe Biden were released a day earlier by member of parliament Andriy Derkach, giving the Prosecutor General’s Office just enough time to register an investigation of treason against Poroshenko before the start of the press conference.)
+Z appeared eager to talk about leaked recordings made in the office of his predecessor, Ukraine’s fifth President Petro Poroshenko. (Snippets of conversations between Poroshenko and former U.S. Secretary of State John Kerry and former U.S. President Joe Biden were released a day earlier by member of parliament Andriy Derkach, giving the Prosecutor General’s Office just enough time to register an investigation of treason against Poroshenko before the start of the press conference.)
 
-> “As for me being the ‘verdict’ against Mr. Poroshenko ... I’m sure that all this is yet to come. You all saw yesterday’s scandal. I think they [Poroshenko and his team] governed the state in such a manner that they will face many different adventures and verdicts. …I don’t want to talk about it, because this is not my authority. The matter is up to the court," z. said.
+> “As for me being the ‘verdict’ against Mr. Poroshenko ... I’m sure that all this is yet to come. You all saw yesterday’s scandal. I think they [Poroshenko and his team] governed the state in such a manner that they will face many different adventures and verdicts. …I don’t want to talk about it, because this is not my authority. The matter is up to the court," Z said.
 
-Selective justice is common in Ukraine. “Frivolous, politically motivated criminal investigations against political rivals is a feature of ultra-competitive Ukraine-style politics.” (cf. 1,700-word op-ed, titled [One Year Later: z.’s Moment of Reckoning](https://www.the-american-interest.com/2020/05/19/volodymyr-zelenskys-moment-of-reckoning/), appearing in The American Interest)
+Selective justice is common in Ukraine. “Frivolous, politically motivated criminal investigations against political rivals is a feature of ultra-competitive Ukraine-style politics.” (cf. 1,700-word op-ed, titled [One Year Later: Z’s Moment of Reckoning](https://www.the-american-interest.com/2020/05/19/volodymyr-zelenskys-moment-of-reckoning/), appearing in The American Interest)
 
 [Image]
 
@@ -2185,7 +2185,7 @@ Roman Skrypin provides additional nuance for foreign Ukraine experts here:
 
 *Date: 2020-05-21 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. and the roots of logical positivism*
+*Z and the roots of logical positivism*
 
 [Image]
 
@@ -2195,9 +2195,9 @@ This is an updated post from May 21, cf. Rudolph Carnap’s criterion of cogniti
 
 ---
 
-The “positive dynamics of COVID-19 infection” ([позитивна динаміка захворюваності](https://www.president.gov.ua/news/epidemichna-situaciya-v-ukrayini-dozvolyaye-nablizhati-nastu-61205)) was the *reason* stated by Ukrainian President Volodymyr z. on May 21, 2020 for easing nationwide quarantine restrictions.
+The “positive dynamics of COVID-19 infection” ([позитивна динаміка захворюваності](https://www.president.gov.ua/news/epidemichna-situaciya-v-ukrayini-dozvolyaye-nablizhati-nastu-61205)) was the *reason* stated by Ukrainian President Volodymyr Z on May 21, 2020 for easing nationwide quarantine restrictions.
 
-In fact, z. had absolutely no idea what he was talking about.
+In fact, Z had absolutely no idea what he was talking about.
 
 [Image]
 
@@ -2207,7 +2207,7 @@ Which got me thinking about Otto Neurath, the inventor of the [ISOTYPE](https://
 
 Neurath's work on [protocol statements](https://en.wikipedia.org/wiki/Protocol_statement "Protocol statement") tried to reconcile an [empiricist](https://en.wikipedia.org/wiki/Empiricism "Empiricism") concern for the grounding of knowledge in experience with the essential publicity of science. [Bertrand Russell](https://en.wikipedia.org/wiki/Bertrand_Russell "Bertrand Russell") took issue with Neurath's account of protocol statements in his book *An Inquiry Into Meaning and Truth*, on the grounds that it severed the connection to experience that is essential to an empiricist account of truth, facts and knowledge.
 
-Neither Neurath nor Russell would have agreed with z. about Ukraine’s current positive dynamics of morbidity.
+Neither Neurath nor Russell would have agreed with Z about Ukraine’s current positive dynamics of morbidity.
 
 ---
 
@@ -2233,7 +2233,7 @@ What is Ukraine’s COVID-19 disaster, and how can we measure the spread of the 
 
 They first created algorithms to measure infection rates, but it’s been difficult to assess the reliability and accuracy of the reporting formula without a circular reliance on the means used to collect the data, which we distrust.
 
-The exercise raises challenging epistemic and technical questions. Much of the public’s knowledge about Ukraine’s handling of the epidemic has been based on the opinions of hacks and academicians. (cf. 1,700-word op-ed, titled [One Year Later: z.’s Moment of Reckoning](https://www.the-american-interest.com/2020/05/19/volodymyr-zelenskys-moment-of-reckoning/), appearing in The American Interest)
+The exercise raises challenging epistemic and technical questions. Much of the public’s knowledge about Ukraine’s handling of the epidemic has been based on the opinions of hacks and academicians. (cf. 1,700-word op-ed, titled [One Year Later: Z’s Moment of Reckoning](https://www.the-american-interest.com/2020/05/19/volodymyr-zelenskys-moment-of-reckoning/), appearing in The American Interest)
 
 [Image]
 
@@ -2253,7 +2253,7 @@ A good rule of thumb is to believe \*nothing\* Ukraine's healthcare officials sa
 
 At the beginning of the outbreak, Ukraine had a chance to contain the novel virus by identifying each person bringing the infection into the country and stopping it before it spread in the community.
 
-President Volodymyr z. [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
+President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
 
 [Image]
 
@@ -2269,7 +2269,7 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 ---
 
-## z. Faces Retaliation for Shit-Talking
+## Z Faces Retaliation for Shit-Talking
 
 *Date: 2020-05-21 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -2279,7 +2279,7 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 *Appealing to far-fetched scenarios with little to no detail or context and stating your conclusion can be, at best, unpersuasive and, at worst, counterproductive.*
 
-Ukraine’s Prosecutor General Iryna Venediktova early on May 20, 2020 opened a criminal case over so-called "Biden recordings" after a talk with Ukrainian President Volodymyr z. after the latter himself confirmed his personal interest in this case.
+Ukraine’s Prosecutor General Iryna Venediktova early on May 20, 2020 opened a criminal case over so-called "Biden recordings" after a talk with Ukrainian President Volodymyr Z after the latter himself confirmed his personal interest in this case.
 
 That was what Ilya Novikov, the lawyer for former President Petro Poroshenko, said during a press conference on May 20 in Kyiv.
 
@@ -2287,23 +2287,23 @@ That was what Ilya Novikov, the lawyer for former President Petro Poroshenko, sa
 
 According to Novikov, there is information, which will be verified and specified, that the case was initiated following a conversation between Venediktova and z..
 
-The lawyer said z. demonstrated his personal interest in the given issue by statements he made at the press conference on May 20 marking his first year as president.
+The lawyer said Z demonstrated his personal interest in the given issue by statements he made at the press conference on May 20 marking his first year as president.
 
-> "z. said he is sure that Poroshenko's (guilty) verdict is a matter of time and that it is possible to qualify actions under the article of state treason… He thus publicly outlined his position... as a person who directly coordinates and is directly interested in these proceedings," the lawyer said.
+> "Z said he is sure that Poroshenko's (guilty) verdict is a matter of time and that it is possible to qualify actions under the article of state treason… He thus publicly outlined his position... as a person who directly coordinates and is directly interested in these proceedings," the lawyer said.
 
 Speaking about the content of the audio recordings, Novikov said, “There is no corpus delicti here."
 
-> "Negotiations of the same content have been taking place over the past few years and during the period when z. heads Ukraine ... This is a common practice," he said.
+> "Negotiations of the same content have been taking place over the past few years and during the period when Z heads Ukraine ... This is a common practice," he said.
 
 Novikov said Poroshenko's defense team will try to establish the source of the leaked recordings.
 
-> "It (a source of records) could be from the American side. But z.'s statements and the behavior of the President's Office, the behavior of the Prosecutor General, speak in favor of the version that the recording could have come from the Ukrainian side, which is a huge problem and can undermine the possibility of conducting confidential conversations... with any foreign partners," the lawyer said.
+> "It (a source of records) could be from the American side. But Z's statements and the behavior of the President's Office, the behavior of the Prosecutor General, speak in favor of the version that the recording could have come from the Ukrainian side, which is a huge problem and can undermine the possibility of conducting confidential conversations... with any foreign partners," the lawyer said.
 
 In turn, the lawyer Ihor Golovan noted that an important point was whether the case is covered by the Criminal Code. In particular, according to him, we are not talking about the disclosure of state secrets, confidentiality of correspondence or unlawful interception.
 
 > "Those who registered criminal proceedings may be leery of divulging that the President's Office was the source of this whole story," Golovan said.
 
-The lawyer said z. "actually voiced the order" to open the case during his press conference.
+The lawyer said Z "actually voiced the order" to open the case during his press conference.
 
 > "Along with our appeal about a deliberately false report about the crime, we will also insist on the fact of yesterday's press conference (MP Andriy Derkach, at which he voiced audio material about Biden's alleged pressure on Poroshenko, on the basis of which the PGO opened criminal proceedings), as well as on the fact of today's actions, when at the president's press conference his statements can be interpreted ... as an attempt to create the impression that the published fabrications were reliable (cases were opened)... These actions, taken together, look like high treason," Golovan said.
 
@@ -2332,9 +2332,9 @@ On May 20, Ukraine’s Prosecutor General’s Office entered in the Unified Regi
 
 [FoxNews](https://www.foxnews.com/politics/zelensky-probe-audio-biden-ukraine), [The Guardian](https://www.theguardian.com/world/2020/may/20/ukraine-joe-biden-petro-poroshenko-recordings-investigation), [The Washington Post](https://www.washingtonpost.com/national-security/ukrainian-lawmaker-releases-leaked-phone-calls-of-biden-and-poroshenko/2020/05/19/cc1e6030-9a26-11ea-b60c-3be060a4f8e1_story.html), [Euronews](https://www.euronews.com/2020/05/21/ukraine-opens-probe-into-leaked-biden-poroshenko-tapes), [Newsweek](https://www.newsweek.com/joe-biden-leaked-ukraine-calls-released-russian-special-operation-ex-president-claims-1505685), [Mother Jones](https://www.motherjones.com/politics/2020/05/a-new-giuliani-like-effort-to-smear-biden-over-ukraine-falls-flat/), [Bloomberg](https://www.bloomberg.com/news/articles/2020-05-20/what-we-learned-from-leaked-biden-tapes-and-what-we-didn-t), [The Daily Beast](https://www.thedailybeast.com/who-leaked-bidens-calls-to-ukraine), [The Independent](https://www.independent.co.uk/news/world/europe/ukraine-president-volodymyr-zelensky-mask-impeachment-news-a9524726.html), et cetera wrote about the leak, which was promoted a day earlier by [thousands of Kremlin bots](https://twitter.com/search?q=biden%20poroshenko&src=typed_query) and [pro-Trumpy ezines](https://www.zerohedge.com/geopolitical/phone-calls-between-quid-pro-joe-biden-and-ukraines-poroshenko-leak-explicitly-details). Even renowned Ukraine expert Nina Jankowicz had something to [say](https://twitter.com/wiczipedia/status/1262883314987302912). But ***all*** these stories and self-aggrandizing Twitter dot com posts missed the point.
 
-**On May 20**, President Volodymyr z. was also eager to talk about the leak at a press conference teeming with pro-Russia trolls in Kyiv. He confirmed that the Prosecutor General’s Office had indeed registered an investigation of possible treason committed by Poroshenko based on the recordings.
+**On May 20**, President Volodymyr Z was also eager to talk about the leak at a press conference teeming with pro-Russia trolls in Kyiv. He confirmed that the Prosecutor General’s Office had indeed registered an investigation of possible treason committed by Poroshenko based on the recordings.
 
-> “Yes, I heard about the [scandal] involving Poroshenko and Biden. I will comment about this. I don't think this is the last case Ukrainians, citizens of Ukraine, will hear about (*це не останній дзвінок,який побачать українці*). It's the job of Prosecutor General's Office and law-enforcement agencies to respond. I know that the Prosecutor General's Office yesterday registered a pretrial investigation on possible treason pursuant to the appeal by member of parliament Andriy Derkach. They will investigate. I know that [what Poroshenko said] may be qualified in the criminal proceeding as state treason. This is up to law-enforcement agencies to decide.” z. [said](https://www.youtube.com/watch?v=jjOYcKTjudw&feature=emb_logo).
+> “Yes, I heard about the [scandal] involving Poroshenko and Biden. I will comment about this. I don't think this is the last case Ukrainians, citizens of Ukraine, will hear about (*це не останній дзвінок,який побачать українці*). It's the job of Prosecutor General's Office and law-enforcement agencies to respond. I know that the Prosecutor General's Office yesterday registered a pretrial investigation on possible treason pursuant to the appeal by member of parliament Andriy Derkach. They will investigate. I know that [what Poroshenko said] may be qualified in the criminal proceeding as state treason. This is up to law-enforcement agencies to decide.” Z [said](https://www.youtube.com/watch?v=jjOYcKTjudw&feature=emb_logo).
 
 The Pechersky Court of Kyiv later the same day ordered the Prosecutor General's Office to enter into the Unified Register of Pretrial Investigations information in a related case involving the possible interference of Biden in the activities of former Prosecutor General of Ukraine Viktor Shokin.
 
@@ -2365,7 +2365,7 @@ Ukraine’s European Business Association on May 20 published its [annual survey
 
 [Image]
 
-Novopecherski Lipky has got to be one of the worst places in Kyiv, maybe in the whole of Europe, to assassinate your rival. The prestigious residential business-class complex located in the capital’s Pechersk district is full of security guards and CCTV cameras. President Volodymyr z.’s son attends an elementary school located within the tightly guarded complex, which is owned by Ukrainian billionaire Vasyl Khmelnytsky.
+Novopecherski Lipky has got to be one of the worst places in Kyiv, maybe in the whole of Europe, to assassinate your rival. The prestigious residential business-class complex located in the capital’s Pechersk district is full of security guards and CCTV cameras. President Volodymyr Z’s son attends an elementary school located within the tightly guarded complex, which is owned by Ukrainian billionaire Vasyl Khmelnytsky.
 
 [Image]
 
@@ -2399,7 +2399,7 @@ That’s one reason why the May 26, 2020 *[statement](https://www.atlanticcounci
 
 A second reason is because there are at least eight hours of these unflattering secretly recorded conversations. Think of it as the Ukrainian audio version of Wikileaks. I won’t talk about the third and fourth reasons.
 
-It's something between a miracle and a curse that the authors of the *statement* can even tolerate disruptors Donald Trump and Volodymyr z., let alone offer advice, like tears in rain, to policymakers in both countries.
+It's something between a miracle and a curse that the authors of the *statement* can even tolerate disruptors Donald Trump and Volodymyr Z, let alone offer advice, like tears in rain, to policymakers in both countries.
 
 ---
 
@@ -2426,7 +2426,7 @@ Lest we forget:
 
 *Date: 2020-05-28 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*Ukraine under z. deserves zero American taxpayer support*
+*Ukraine under Z deserves zero American taxpayer support*
 
 [Image]
 
@@ -2434,9 +2434,9 @@ There are no good reasons for hardworking American taxpayers to shore up the cur
 
 Ukraine’s president reminds us of someone who is looking out through a closed window and cannot explain to himself the strange movements of passers-by. He cannot tell what sort of storm is raging out there or that these people might only be managing with difficulty to stay on their feet.
 
-Ordinary Ukrainians won’t keel over if U.S. assistance dries up, but Volodymyr z. might.
+Ordinary Ukrainians won’t keel over if U.S. assistance dries up, but Volodymyr Z might.
 
-It would be disingenuous to claim that z.'s universal magnetism is down to "vibe" alone. But it's difficult to remember the last time we witnessed a vibe so gigantically stupid.
+It would be disingenuous to claim that Z's universal magnetism is down to "vibe" alone. But it's difficult to remember the last time we witnessed a vibe so gigantically stupid.
 
 ---
 
@@ -2449,9 +2449,9 @@ It would be disingenuous to claim that z.'s universal magnetism is down to "vibe
 
 ---
 
-Last week, z. made it clear that he supports Donald Trump in the 2020 U.S. presidential election. Ukraine experts who do not recognize this fact should find other work.
+Last week, Z made it clear that he supports Donald Trump in the 2020 U.S. presidential election. Ukraine experts who do not recognize this fact should find other work.
 
-> “Yes, I heard about the [scandal] involving Poroshenko and Biden. I will comment about this. I don't think this is the last case Ukrainians, citizens of Ukraine, will hear about (*це не останній дзвінок,який побачать українці*). It's the job of Prosecutor General's Office and law-enforcement agencies to respond. I know that the Prosecutor General's Office yesterday registered a pretrial investigation on possible treason pursuant to the appeal by member of parliament Andriy Derkach. They will investigate. I know that [what Poroshenko said] may be qualified in the criminal proceeding as state treason. This is up to law-enforcement agencies to decide.” z. [said](https://www.youtube.com/watch?v=jjOYcKTjudw&feature=emb_logo) on May 20 during a press conference in Kyiv.
+> “Yes, I heard about the [scandal] involving Poroshenko and Biden. I will comment about this. I don't think this is the last case Ukrainians, citizens of Ukraine, will hear about (*це не останній дзвінок,який побачать українці*). It's the job of Prosecutor General's Office and law-enforcement agencies to respond. I know that the Prosecutor General's Office yesterday registered a pretrial investigation on possible treason pursuant to the appeal by member of parliament Andriy Derkach. They will investigate. I know that [what Poroshenko said] may be qualified in the criminal proceeding as state treason. This is up to law-enforcement agencies to decide.” Z [said](https://www.youtube.com/watch?v=jjOYcKTjudw&feature=emb_logo) on May 20 during a press conference in Kyiv.
 
 The Pechersky Court of Kyiv the same day ordered the Prosecutor General's Office to enter into the Unified Register of Pretrial Investigations information in a related case involving the possible interference of Biden in the activities of former Prosecutor General of Ukraine Viktor Shokin.
 
@@ -2463,11 +2463,11 @@ Poroshenko’s lawyers [responded](https://abdymok.substack.com/p/zelensky-dest
 
 ---
 
-Last year, z. inspired a cult-like following, but he failed to work on his own problems, which are manifold, starting with his disregard for dialectical discourse.
+Last year, Z inspired a cult-like following, but he failed to work on his own problems, which are manifold, starting with his disregard for dialectical discourse.
 
 Evolving real ideas is not passé. Reality must be expressed in rational categories, or it is irrelevant. The exchange of ideas could have actually benefited Ukrainians during the election campaign and during the months preceding Ukraine’s COVID-19 disaster.
 
-z. has led a 12-month blitz to muddle perceptions and previously accepted facts, starting with Russia’s invasion of Ukraine six years ago and now involving attempts by the previous U.S. administration in 2015 and 2016 to prevent his country from being wiped off the map.
+Z has led a 12-month blitz to muddle perceptions and previously accepted facts, starting with Russia’s invasion of Ukraine six years ago and now involving attempts by the previous U.S. administration in 2015 and 2016 to prevent his country from being wiped off the map.
 
 Under this president, Ukraine does not deserve any U.S. foreign assistance.
 
@@ -2517,13 +2517,13 @@ That has not happened.
 
 Due to the strong overreliance on p-values in political reporting some Ukraine experts have argued that op-eds should be abandoned or banned, and that we need to move beyond them and embrace practical alternatives. When proposing alternatives to p-values, experts often commit the ‘Pollster’s Fallacy,’ where they make believe popularity ratings actually reflect reality.
 
-The calculated probability that Ukrainian President Volodymyr z. is a complete jackass **should no longer be in doubt** after the Kyiv-based Ukrainska Pravda ezine aired a two-part hours-long [days-in-the-life hagiography](https://www.youtube.com/watch?v=z2mixZ6E1JQ&feature=emb_logo) of this increasingly puffy *disruptor.*
+The calculated probability that Ukrainian President Volodymyr Z is a complete jackass **should no longer be in doubt** after the Kyiv-based Ukrainska Pravda ezine aired a two-part hours-long [days-in-the-life hagiography](https://www.youtube.com/watch?v=z2mixZ6E1JQ&feature=emb_logo) of this increasingly puffy *disruptor.*
 
-Take, for example, the following monologue, in which z. talks about his bright idea to contract COVID-19 and barricade himself in the President’s Office.
+Take, for example, the following monologue, in which Z talks about his bright idea to contract COVID-19 and barricade himself in the President’s Office.
 
 > "Why? To make it easier for people. We had a moment of depression, we got together and I suggested: let me get sick and immediately isolate me at Bankova. I’ll sleep there and live normally. Well, so that people understand that it’s scary. It will show that you can get sick and feel bad. I will show this to people by my example, that you have to be isolated, so they understand that there is no depression, that this is a plague. Because we already forgot how very terrible the moment was at the very beginning, when people thought that we would all die. So I suggested this.” the president [said](https://www.pravda.com.ua/rus/articles/2020/06/9/7254917/).
 
-In the [second installment](https://www.youtube.com/watch?v=5ouEjlrqOSg&feature=emb_logo) of the hagiography, z. had unkind words to say about almost everyone, except Ukraine’s oligarchs.
+In the [second installment](https://www.youtube.com/watch?v=5ouEjlrqOSg&feature=emb_logo) of the hagiography, Z had unkind words to say about almost everyone, except Ukraine’s oligarchs.
 
 > Andriy Bohdan, former chief of staff - **power-hungry**
 >
@@ -2551,7 +2551,7 @@ At least [one public response](https://www.facebook.com/profile.php?id=100001919
 >
 > Andriy Bohdan
 
-At least one third of Ukrainians have suspected for at least a year that z. is a clown, however, few expected that the time would come when the standard of competency for foreign experts turned out to be the ability to construe accurately what has now become patently obvious.
+At least one third of Ukrainians have suspected for at least a year that Z is a clown, however, few expected that the time would come when the standard of competency for foreign experts turned out to be the ability to construe accurately what has now become patently obvious.
 
 The ability to fill in missing information, a commonplace in human behavior, has been termed *analysis by synthesis* by psychologists. It refers to the strategy of internally generating or *shadowing* what people say (or do) so that we may more easily reduce the number of possibilities to consider.
 
@@ -2609,21 +2609,21 @@ Ignorance *[is](https://rense.com/politics6/ignorancebliss_p.htm)* bliss for the
 
 [Image]
 
-President Volodymyr z. is finding it enormously difficult to draw a distinction between Ukraine’s objective situation and the way he feels about it. No one is quite sure what to do about the problem. Disgraced former Yanukovych-era hacks cum metrosexuals Serhiy Tihipko and Valeriy Khoroshkovsky have been giving the head of state lots of advice, but they probably just exacerbated an already untenable situation that spun out of control months ago.
+President Volodymyr Z is finding it enormously difficult to draw a distinction between Ukraine’s objective situation and the way he feels about it. No one is quite sure what to do about the problem. Disgraced former Yanukovych-era hacks cum metrosexuals Serhiy Tihipko and Valeriy Khoroshkovsky have been giving the head of state lots of advice, but they probably just exacerbated an already untenable situation that spun out of control months ago.
 
-More than a year after being elected, z. today is alone, tired and frightened.
+More than a year after being elected, Z today is alone, tired and frightened.
 
 [Image]
 
-This is as it should be, because z. has fucked up completely.
+This is as it should be, because Z has fucked up completely.
 
 In Ukraine the [positive dynamics of morbidity](https://abdymok.substack.com/p/postive-dynamics-of-morbidity) over the last 90 days have been driven by [pathological bad thinking,](https://abdymok.substack.com/p/cataplectic-non-cognitivism) [whacko algorithms](https://abdymok.substack.com/p/--35a), [formulations of set theory without variables](https://abdymok.substack.com/p/zeteams-replication-crisis), [kooky mitigation models for flattening the curve](https://abdymok.substack.com/p/ukraines-ugly-little-covid-19-secrets), [magical epidemic thinking](https://abdymok.substack.com/p/magical-epidemic-thinking-22a), [irredeemable health officials](https://abdymok.substack.com/p/ukraines-irredeemable-health-ministry), [pandemic politics](https://abdymok.substack.com/p/zes-covid-clowns)and false assumptions promulgated by [poorly calibrated agents](https://abdymok.substack.com/p/what-makes-soup-soup) with [bad ideas](https://abdymok.substack.com/p/ukraines-human-sacrifice-experiment) who abandoned the [precautionary principle](https://abdymok.substack.com/p/the-precautionary-principle).
 
 The result isn't unlike a horrible accident, except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a victim.
 
-Much has been written about z.’s whacko mission to put his predecessor Petro Poroshenko in jail for make-believe crimes. Bohdan for Censor.net below sums up the failed attempts succinctly.
+Much has been written about Z’s whacko mission to put his predecessor Petro Poroshenko in jail for make-believe crimes. Bohdan for Censor.net below sums up the failed attempts succinctly.
 
-Even z.’s former teammates are breaking ranks. For example, ex-Prime Minister Oleksiy Honcharuk the other day said the president is *different* now, compared to when they worked together.
+Even Z’s former teammates are breaking ranks. For example, ex-Prime Minister Oleksiy Honcharuk the other day said the president is *different* now, compared to when they worked together.
 
 [Image]
 
@@ -2633,12 +2633,12 @@ Which makes us wonder whether Honcharuk is an ignorant fool or a corrupt liar.
 
 There is no theory of epistemology that prioritizes “truth over facts” in ultra-competitive Ukraine-style politics, unless we get metaphysical, eat a bunch of mushrooms and contemplate reverse epistocracy and doublespeak incoheretism, so I’ll be brief.
 
-The first year of President Volodymyr z.’s presidency is best described as *[cataplectic](https://abdymok.substack.com/p/cataplectic-non-cognitivism)*.
+The first year of President Volodymyr Z’s presidency is best described as *[cataplectic](https://abdymok.substack.com/p/cataplectic-non-cognitivism)*.
 
 **In a nutshell:**
 
-- **Bootlickery.** z. *agreed* in September 2019 to go to a mic and announce investigations into Burisma/Biden at the behest of U.S. President Donald Trump, who was later impeached for blackmailing an ally.
-- **Russia’s invasion.** Ukraine has made zero (0) progress to end Russia’s occupation of Crimea and parts of eastern Ukraine. z.’s magical presidential campaign promise to end the war was just that.
+- **Bootlickery.** Z *agreed* in September 2019 to go to a mic and announce investigations into Burisma/Biden at the behest of U.S. President Donald Trump, who was later impeached for blackmailing an ally.
+- **Russia’s invasion.** Ukraine has made zero (0) progress to end Russia’s occupation of Crimea and parts of eastern Ukraine. Z’s magical presidential campaign promise to end the war was just that.
 - **The economy.** cf. [Operation Y](https://medium.com/@abdymok/operation-y-b2d557374ca7) (leading to Honcharuk’s sacking)
 - **Reforms.**What reforms? [Putting the Truba tapes in context](https://abdymok.substack.com/p/putting-the-truba-tapes-in-context)
 - **Civil liberties.**None left. cf. [Thug Life](https://abdymok.substack.com/p/thug-life)
@@ -2648,7 +2648,7 @@ The first year of President Volodymyr z.’s presidency is best described as *[
 
 **COVID-19 response\***
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -2670,7 +2670,7 @@ It’s day whatever of Ukraine’s COVID-19 disaster and the 7-day average of ne
 
 The result isn't unlike a horrible accident, except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a victim.
 
-Recall what President Volodymyr z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what President Volodymyr Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -2705,7 +2705,7 @@ While pro-Russia media in Ukraine publicly stroke Trump, Z can supply his re-ele
 
 At the moment, Ukraine’s law-enforcement agencies aren’t getting much traction — and Trump’s prospects in November are [trending downward](https://www.cnn.com/2020/06/21/politics/trump-voters-polls-analysis/index.html). But Z and Trump are resourceful. Both are disruptors who are willing to take risks and break norms. In 2016, no one expected Trump to become president.
 
-Now, z. needs his reelection.
+Now, Z needs his reelection.
 
 ---
 
@@ -2751,7 +2751,7 @@ the quality of the unedited [90-minute-long audio recording](https://drive.goog
 
 smolii, prime minister oleksiy honcharuk, national bank of ukraine deputy chairwoman kateryna rozhkova, nbu board member dmytro solohub, finance minister oksana markarova and other officials, including minister of economic development, trade and agriculture tymofiy mylovanov are the main speakers in the brainstorming breakfast.
 
-all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr z. why low inflation and a strong hryvnia is the correct policy for the economy.
+all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr Z why low inflation and a strong hryvnia is the correct policy for the economy.
 
 three unflattering and misleading excerpts of the discussion were first posted on january 15 to the “how to deceive the president” youtube account (*какобманутьпрезидента*). honcharuk resigned two days later.
 
@@ -2765,7 +2765,7 @@ industrial production in ukraine in november 2019 decreased by 7.5% compared to 
 
 “the prime minister tendered his resignation letter to the president. it would have been easier for him to just drop it off at the central bank, which is closer to the president’s office,” skarshevsky said.
 
-neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between z. and honchaurk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
+neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between Z and honchaurk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
 
 the president instead asked the prime minister to resolve the following problems by february 4, 2020: 1) remuneration for ministers and top government officials, 2) bonus payments to naftogaz staff for winning the $2.9 billion stockholm arbitration ruling against gazprom, 3) removal of the least competent cabinet members, optimization of ministries and 4) improvement of cooperation between the government and parliament committees.
 
@@ -2779,9 +2779,9 @@ ukraine’s top economists agree prudent macroeconomic policies under ukraine’
 
 it is ukraine’s **current** and **future** macroeconomic policy, based on the continued revaluation of the hryvnia under the pretext of a poorly understood strategy of so-called “inflation targeting” by the central bank, that worries mykhailo kukhar, founder of ukraine economic outlook (ueo), a kyiv-based non-profit that analyzes macroeconomic policy.
 
-“the current approach is the wrong approach, because it will further suppress exports, leading to a further decline in production, layoffs, a decrease in household incomes and purchasing power, under-fulfillment of the budget, increased public discontent, outflow of bank deposits, recession, economic crisis and, ultimately, the decline of z.’s popularity,” he said.
+“the current approach is the wrong approach, because it will further suppress exports, leading to a further decline in production, layoffs, a decrease in household incomes and purchasing power, under-fulfillment of the budget, increased public discontent, outflow of bank deposits, recession, economic crisis and, ultimately, the decline of Z’s popularity,” he said.
 
-this is exactly the scenario participants in the recordings were brainstorming about pushing z. to support, kukhar added.
+this is exactly the scenario participants in the recordings were brainstorming about pushing Z to support, kukhar added.
 
 [Image][Image]
 
@@ -2813,7 +2813,7 @@ Looking on the bright side, it’s beginning to dawn on people that the country�
 
 ---
 
-Recall what President z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what President Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -2837,11 +2837,11 @@ The [positive dynamics of morbidity](https://abdymok.substack.com/p/postive-dyn
 
 The result isn't unlike a horrible accident, except it’s been caused by an unemployed actor desperate for attention and applause. You want to laugh and be entertained, but you also want to avoid becoming a victim.
 
-It should be abundantly obvious to anyone who has been paying attention that Ukraine’s *disruptor* President Volodymyr z. is not a big fan of dialectical discourse. He eschewed with great fanfare the Hegelian approach of evolving real ideas (thesis vs antithesis) more than a year ago during the presidential election campaign.
+It should be abundantly obvious to anyone who has been paying attention that Ukraine’s *disruptor* President Volodymyr Z is not a big fan of dialectical discourse. He eschewed with great fanfare the Hegelian approach of evolving real ideas (thesis vs antithesis) more than a year ago during the presidential election campaign.
 
 Problems caused by the non-expression of reality in rational categories during the pandemic have been manifold. Arguments expressed in memes decorated with pink unicorns and photo opportunities advertised on social media often muddle perceptions and previously accepted facts.
 
-z. for months has been deflecting blame for the increase in the number of virus cases on ordinary citizens while healthcare bureaucrats have invented multiple theories to downplay the seriousness of the pandemic.
+Z for months has been deflecting blame for the increase in the number of virus cases on ordinary citizens while healthcare bureaucrats have invented multiple theories to downplay the seriousness of the pandemic.
 
 ---
 
@@ -2857,9 +2857,9 @@ Increasing public trust in science by demonstrating that people *aren’t* awa
 
 The obvious disconnect from reality was shaped, even distorted, by the myriad of batshit responses in March, April and May to the spread of COVID-19. The initial tendency not to test for the virus and downplay the risk partly reflected the president’s dismissive messaging about the pandemic and revealed a deeper ideological suspicion of science in general.
 
-The “positive dynamics of COVID-19 infection” ([позитивна динаміка захворюваності](https://www.president.gov.ua/news/epidemichna-situaciya-v-ukrayini-dozvolyaye-nablizhati-nastu-61205)) was the *reason* stated by Ukrainian President Volodymyr z. on May 21, 2020 for easing nationwide quarantine restrictions.
+The “positive dynamics of COVID-19 infection” ([позитивна динаміка захворюваності](https://www.president.gov.ua/news/epidemichna-situaciya-v-ukrayini-dozvolyaye-nablizhati-nastu-61205)) was the *reason* stated by Ukrainian President Volodymyr Z on May 21, 2020 for easing nationwide quarantine restrictions.
 
-In fact, z. had absolutely no idea what he was talking about.
+In fact, Z had absolutely no idea what he was talking about.
 
 [Image]
 
@@ -2883,7 +2883,7 @@ It’s day whatever of Ukraine’s COVID-19 disaster and the weekly number of pa
 
 Serious scientists, doctors, epidemiologists and mathematical modeling experts said this would happen in mid-May when quarantine measures were eased… and mostly ignored. Political hacks and top government officials, meanwhile, urged us to believe in magical thinking, which explains why we’re soooooo fucked until at least November.
 
-President Volodymyr z. has not been helpful. During a recent trip to Zhytomyr, he was spotted unmasked socializing with his closest associates. He then said he wanted to be infected with the virus to prove it’s not so scary - a macho stunt worthy of his disruptor idol Jair Bolsonaro, President of Brazil.
+President Volodymyr Z has not been helpful. During a recent trip to Zhytomyr, he was spotted unmasked socializing with his closest associates. He then said he wanted to be infected with the virus to prove it’s not so scary - a macho stunt worthy of his disruptor idol Jair Bolsonaro, President of Brazil.
 
 [Image]
 
@@ -2905,7 +2905,7 @@ The result isn't unlike a horrible accident, except it’s been caused by an une
 
 *Date: 2020-07-01 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. re-tests old adage that absolute power corrupts absolutely*
+*Z re-tests old adage that absolute power corrupts absolutely*
 
 [Image]
 
@@ -2919,21 +2919,21 @@ In Vladimir Putin’s Russia and Alexander Lukashenko’s Belarus you have to pr
 
 Which brings us to the YouTube [video](https://bit.ly/3gflc0i) posted last night by Ukraine’s top cop, Prosecutor General Iryna Venedyktovna, who for almost six minutes argues that criminal charges brought against former President Petro Poroshenko are legally sound. The clip ends with her saying Poroshenko will have the chance on July 1, 2020 to prove his innocence in court.
 
-As Ariana Gic correctly [points out](https://www.facebook.com/gic.ariana/posts/10164139689055624), Venedyktova’s stunt violates Ukraine's Constitution, the UN's Universal Declaration of Human Rights, Rome Statute of the International Criminal Court, and more. In z.’s Soviet Ukraine, where fundamental rights like the presumption of innocence has no meaning or place, anything is possible, she said.
+As Ariana Gic correctly [points out](https://www.facebook.com/gic.ariana/posts/10164139689055624), Venedyktova’s stunt violates Ukraine's Constitution, the UN's Universal Declaration of Human Rights, Rome Statute of the International Criminal Court, and more. In Z’s Soviet Ukraine, where fundamental rights like the presumption of innocence has no meaning or place, anything is possible, she said.
 
 Poroshenko’s lawyer Illia Novikov [responded](https://www.facebook.com/watch/?v=268092500948442) to Venedyktova on July 1 on Facebook in a six-minute video, elaborating numerous technical errors, mistakes and irregularities in the charges against his client.
 
 > "It seems that the Prosecutor General believes that you and I live in an era of Tik-Tok justice - when you can just write on a piece of paper instead of justifying your position and not admitting your mistakes, but this is not the case. We are waiting for Iryna Venedyktova at Pechersk District Court of Kyiv, where she will finally be able to explain her position, as required by law,” Novikov said.
 
-Poroshenko in an [interview](https://www.youtube.com/watch?v=kv-2a4bScpA) with Yanina Sokolova published on June 30 explained what he thinks z. and his handlers are after.
+Poroshenko in an [interview](https://www.youtube.com/watch?v=kv-2a4bScpA) with Yanina Sokolova published on June 30 explained what he thinks Z and his handlers are after.
 
-He said the more than two dozen criminal proceedings initiated against him is a consequence of Volodymyr z.’s phobias, which are used by his entourage to disguise the leadership failures of the president.
+He said the more than two dozen criminal proceedings initiated against him is a consequence of Volodymyr Z’s phobias, which are used by his entourage to disguise the leadership failures of the president.
 
-> "I like to use the analogy of a compass pointing at Ukraine's enemy. Around z., it hits in a strange magnetic field and the needle begins to spin around wildly and show him the wrong direction. Ukraine has one enemy, the aggressor state. The country must unite in order to fight back. When magnetic storms constantly switch the direction of the war, government's actions are extremely ineffective," Poroshenko [said](https://www.youtube.com/watch?v=kv-2a4bScpA).
+> "I like to use the analogy of a compass pointing at Ukraine's enemy. Around Z, it hits in a strange magnetic field and the needle begins to spin around wildly and show him the wrong direction. Ukraine has one enemy, the aggressor state. The country must unite in order to fight back. When magnetic storms constantly switch the direction of the war, government's actions are extremely ineffective," Poroshenko [said](https://www.youtube.com/watch?v=kv-2a4bScpA).
 
 He said pressure by is also being exerted on Sofia Fedina, Tetiana Chornovol, and Marusya Zvirobiy.
 
-> "This discredits Ukraine. This will not solve the problem. It is the revenge of small people for small deeds. Insignificant. z. believes the main problem is not total incompetence, but some hostile scenarios within the country, which he associates exclusively with my name,” Poroshenko [said](https://www.youtube.com/watch?v=kv-2a4bScpA).
+> "This discredits Ukraine. This will not solve the problem. It is the revenge of small people for small deeds. Insignificant. Z believes the main problem is not total incompetence, but some hostile scenarios within the country, which he associates exclusively with my name,” Poroshenko [said](https://www.youtube.com/watch?v=kv-2a4bScpA).
 
 Poroshenko said criminal proceedings against him are an attempt to divert attention from the real problems facing Ukraine, to give people popcorn instead of bread, to remain popular by putting on a show.
 
@@ -2972,7 +2972,7 @@ Marchenko said Smolii’s resignation was an extraordinary event for investors, 
 
 > "There are many questions. We had to stop the placement. And we cancelled it this morning. It was a balanced decision, taking into account the factors we faced,” he [said](https://bit.ly/2C4ApCY).
 
-Bleyzer Foundation Executive Director [Oleh Ustenko](http://www.sigmableyzer.com/who-we-are/our-people/oleg-ustenko) knows a lot about the sort of graft that hobbles economic development by allowing well-connected insiders to profit from investment at the expense of genuine growth. It’s his job when he’s not moonlighting as z.’s advisor on the country’s macroeconomic mess.
+Bleyzer Foundation Executive Director [Oleh Ustenko](http://www.sigmableyzer.com/who-we-are/our-people/oleg-ustenko) knows a lot about the sort of graft that hobbles economic development by allowing well-connected insiders to profit from investment at the expense of genuine growth. It’s his job when he’s not moonlighting as Z’s advisor on the country’s macroeconomic mess.
 
 > "I think that the main problem that Smolii had, as well as the leadership of the National Bank, was not a matter of real political pressure, as Smolii said in his resignation letter, mistakenly assuming that an insufficiently effective communication policy is real political pressure being put on him. I see no problems in the fact that the expert community and parliament deputies and, in large measure, players in the banking sector themselves, primarily commercial banks, wanted clear positions on the part of the National Bank with explanations of what is happening and what steps it is taking," Presidential Advisor Oleh Ustenko [messaged](https://www.youtube.com/watch?v=foSwRqmLh4Q) in video clip posted to the Dom YouTube channel.
 
@@ -3054,9 +3054,9 @@ The quality of the unedited [90-minute-long audio recording](https://drive.goog
 
 Ukrainians have known for years that foreign experts pick up on much less in conversation than native speakers. However, few expected that the time would come when the standard of competency turned out to be the ability to agree that **balance of payments** (*платёжный баланс*) should not be confused with **balance of trade** (*торговый баланс*), about the difference in meaning between *разбрат* (**a falling out**) and *разврат*(**debauchery**) or how best to explain macroeconomic policy to Ukraine’s president, who obviously does not know the difference.
 
-**Contrary to most local and international media reports,** the recording does not reveal z.’s financial illiteracy per se, but what Ukraine’s macroeconomic policy was then and should be in the future.
+**Contrary to most local and international media reports,** the recording does not reveal Z’s financial illiteracy per se, but what Ukraine’s macroeconomic policy was then and should be in the future.
 
-All participants appeared to understand what they were saying. They struggled politely, always audibly and at times incoherently, to agree on how best to explain to z. why low inflation and a strong hryvnia was the correct policy for the economy.
+All participants appeared to understand what they were saying. They struggled politely, always audibly and at times incoherently, to agree on how best to explain to Z why low inflation and a strong hryvnia was the correct policy for the economy.
 
 Three unflattering and misleading excerpts of the discussion were first posted on January 15 to the “How to Deceive the President” YouTube account (*какобманутьпрезидента*). Honcharuk resigned two days later.
 
@@ -3064,7 +3064,7 @@ Honcharuk acknowledged in a video [posted](https://www.facebook.com/PMHoncharuk
 
 Industrial production in Ukraine in November 2019 decreased by 7.5% compared to November 2018 after a decrease of 5% in October and 1.1% in September, according to Ukraine’s State Statistics Service. This explains why the country’s leading industrialists and exporters were outspoken critics of the government’s macroeconomic policy.
 
-Neither Ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between z. and Honchaurk on January 17. At the start of their one-on-one meeting posted to Facebook, the president said the scandal had created “a very unpleasant situation.” He then added that Honcharuk and his team would be given another chance.
+Neither Ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between Z and Honchaurk on January 17. At the start of their one-on-one meeting posted to Facebook, the president said the scandal had created “a very unpleasant situation.” He then added that Honcharuk and his team would be given another chance.
 
 On the same day, IMF Managing Director Kristalina Georgieva gave an hour-long [speech](https://www.piie.com/events/financial-services-and-inequality-new-imf-research) at the Peterson Institute in Washington about the importance of financial literacy.
 
@@ -3078,7 +3078,7 @@ It was Ukraine’s **current** and **future** macroeconomic policy, based on
 
 Critics of the central bank argued that a strong hryvnia would further suppress exports, leading to a further decline in production, layoffs, a decrease in household incomes and purchasing power, under-fulfillment of the budget, increased public discontent, outflow of bank deposits, recession, economic crisis and, ultimately, the decline of the president’s popularity.
 
-This is exactly the scenario participants in the recording were brainstorming about pushing z. to support.
+This is exactly the scenario participants in the recording were brainstorming about pushing Z to support.
 
 ---
 
@@ -3090,11 +3090,11 @@ This is exactly the scenario participants in the recording were brainstorming ab
 
 [Image]
 
-These are the words of Ukrainian President Volodymyr z. on July 4 during a working visit to Odesa region. He was speaking the day after parliament accepted National Bank of Ukraine Governor Yakiv Smolii’s resignation.
+These are the words of Ukrainian President Volodymyr Z on July 4 during a working visit to Odesa region. He was speaking the day after parliament accepted National Bank of Ukraine Governor Yakiv Smolii’s resignation.
 
 What, exactly, was president trying to say?
 
-> “Everyone knows what levers are used for maintaining the hryvnia exchange rate. I don’t think they must be changed. This is a delicate issue. Right now, I don’t see that we must maintain (the exchange rate), to be honest. We can talk about what my personal preference is: Should we maintain (the exchange rate)… or shouldn’t we… or are we operating in market conditions?” z. said.
+> “Everyone knows what levers are used for maintaining the hryvnia exchange rate. I don’t think they must be changed. This is a delicate issue. Right now, I don’t see that we must maintain (the exchange rate), to be honest. We can talk about what my personal preference is: Should we maintain (the exchange rate)… or shouldn’t we… or are we operating in market conditions?” Z said.
 
 It is impossible to make sense of these comments, which end in a question. So, we must rely on a pre-semantic analysis of weird ideas bouncing inside the president’s head.
 
@@ -3123,7 +3123,7 @@ The quality of the unedited [90-minute-long audio recording](https://drive.goog
 
 On June 20, 2020, former Prime Minister Oleksiy Honcharuk during the Rendevous program aired by TV Channel 5 said the making and release of a secretly recorded conversation about macroeconomic policy was a manipulation, a “special operation,” conducted to sow discord among members of Z!Team (05:18). Honcharuk said member of parliament Oleksandr Dubinsky and his colleagues were behind the stunt, which led to his dismissal.
 
-Dubinsky is associated with Ukrainian oligarch Ihor Kolomoisky, z.’s former client, whose 1+1 TV channel aired the popular Servant of the People television series and supported z.’s successful presidential election campaign.
+Dubinsky is associated with Ukrainian oligarch Ihor Kolomoisky, Z’s former client, whose 1+1 TV channel aired the popular Servant of the People television series and supported Z’s successful presidential election campaign.
 
 cf. [National Bank of Ukraine is Kaput](https://abdymok.substack.com/p/national-bank-of-ukraine-is-kaput)
 
@@ -3201,7 +3201,7 @@ cf. [A Delicate Issue](https://abdymok.substack.com/p/a-delicate-issue)
 *Nice positive zero-sum status game*
 
 [Image]
-*Parliament confirms President Volodymyr z.’s appointment of Kyrylo Shevchenko as National Bank of Ukraine Governor (July 16, 2020)*
+*Parliament confirms President Volodymyr Z’s appointment of Kyrylo Shevchenko as National Bank of Ukraine Governor (July 16, 2020)*
 
 You can’t help but admire someone who has a well developed, deep sense of humility. That’s why decorating your [personal website](https://kirillshevchenko.com/en/category/stati/) with flattering portraits is a bad idea.
 
@@ -3271,7 +3271,7 @@ For the last couple of weeks we’ve been averaging 800 cases per day. Recent pu
 
 [Image]
 
-President Volodymyr z. on July 16 [said](https://www.pravda.com.ua/rus/news/2020/07/17/7259678/) there should be no hurry to extend the quarantine, which government extended for a month the same day. He wants the problem to disappear. It won’t.
+President Volodymyr Z on July 16 [said](https://www.pravda.com.ua/rus/news/2020/07/17/7259678/) there should be no hurry to extend the quarantine, which government extended for a month the same day. He wants the problem to disappear. It won’t.
 
 [Image]
 
@@ -3283,13 +3283,13 @@ This walking around drunk in underwear trend is apparently widespread.
 
 ---
 
-## z. and Shevchenko
+## Z and Shevchenko
 
 *Date: 2020-07-20 | Status: Published | Audience: only_paid | Type: newsletter*
 
 *Ukraine's central bank loses independence*
 
-It’s day whatever of Ukraine’s COVID-19 disaster and President Volodymyr z. has officially introduced Kyrylo Shevchenko as National Bank of Ukraine governor.
+It’s day whatever of Ukraine’s COVID-19 disaster and President Volodymyr Z has officially introduced Kyrylo Shevchenko as National Bank of Ukraine governor.
 
 As sacked Prime Minister Oleksiy Honcharuk recently pointed out in a [3-hour interview](https://www.youtube.com/watch?v=-2wv4j_lc7s) with the Golden Triangle guy Dmytro, the chronology of the mess at the central bank *is* important.
 
@@ -3307,7 +3307,7 @@ As sacked Prime Minister Oleksiy Honcharuk recently pointed out in a [3-hour int
 
 ###### July 1, 2020 - Smolii resigns in writing, claiming “systemic political pressure.” ([NBU is Kaput](https://abdymok.substack.com/p/national-bank-of-ukraine-is-kaput))
 
-###### July 2, 2020 - z. economic advisor Oleh Ustenko [says](https://abdymok.substack.com/p/left-in-the-lurch) no one, including Smolii is irreplaceable.
+###### July 2, 2020 - Z economic advisor Oleh Ustenko [says](https://abdymok.substack.com/p/left-in-the-lurch) no one, including Smolii is irreplaceable.
 
 ###### July 2, 2020 - Finance Minister Serhiy Marchenko [says](https://abdymok.substack.com/p/left-in-the-lurch) Smolii’s resignation ruined deal of the decade
 
@@ -3315,9 +3315,9 @@ As sacked Prime Minister Oleksiy Honcharuk recently pointed out in a [3-hour int
 
 ###### July 3, 2020 - Ukrgasbank Board Chairman Kyrylo Shevchenko [posts an interview with himself](https://kirillshevchenko.com/en/ya-vsegda-otnoshus-s-uvazheniem-k-svoej-rabote-kirill-shevchenko-ceo-ukrgazbank/) on his personal web page.
 
-###### July 4, 2020 - z. babbles about UAH/USD rate somewhere in Odesa region. ([Babbling](https://abdymok.substack.com/p/a-delicate-issue))
+###### July 4, 2020 - Z babbles about UAH/USD rate somewhere in Odesa region. ([Babbling](https://abdymok.substack.com/p/a-delicate-issue))
 
-###### July 16, 2020 - Parliament approves z.’s nomination of Shevchenko to replace Smolii.
+###### July 16, 2020 - Parliament approves Z’s nomination of Shevchenko to replace Smolii.
 
 ---
 
@@ -3369,11 +3369,11 @@ It’s day whatever of Ukraine’s COVID-19 disaster and spread of the disease t
 
 Ukraine’s official response to the disease has been like a deflated helium balloon, just sad, sinking and going nowhere.
 
-Populist leaders around the world have exploited the pandemic. Ukrainian President Volodymyr z. has not been an exception.
+Populist leaders around the world have exploited the pandemic. Ukrainian President Volodymyr Z has not been an exception.
 
 ---
 
-**This is what z. [said](https://www.president.gov.ua/en/news/mi-gotovi-do-drugoyi-hvili-epidemiyi-ale-spodivayemosya-sho-62321) on July 20, 2020:**
+**This is what Z [said](https://www.president.gov.ua/en/news/mi-gotovi-do-drugoyi-hvili-epidemiyi-ale-spodivayemosya-sho-62321) on July 20, 2020:**
 
 [Image]
 
@@ -3383,7 +3383,7 @@ Populist leaders around the world have exploited the pandemic. Ukrainian Preside
 
 ---
 
-Dialectical discourse under z. is no longer possible in Ukraine, where *thesis* and its *antithesis* have been made irrelevant.
+Dialectical discourse under Z is no longer possible in Ukraine, where *thesis* and its *antithesis* have been made irrelevant.
 
 The Hegelian approach no longer applies to any important issue. Evolving real ideas is passé. Reality here can no longer be expressed in rational categories.
 
@@ -3487,20 +3487,20 @@ That means it’s okay if the new rulers in Minsk establish an extraordinary mil
 
 *Date: 2020-08-10 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. calls on Belarusian strongman to be more tolerant*
+*Z calls on Belarusian strongman to be more tolerant*
 
 [Image]
 
-Ukraine’s moron President Volodymyr z. has [spoken out on Facebook](https://www.facebook.com/zelenskiy95/posts/2601470510103309) about the bloody massacre of unarmed protesters in Belarus on August 9-10.
+Ukraine’s moron President Volodymyr Z has [spoken out on Facebook](https://www.facebook.com/zelenskiy95/posts/2601470510103309) about the bloody massacre of unarmed protesters in Belarus on August 9-10.
 
-> “Our neighbors in Belarus are going through difficult times now. They are trying to determine the vector of their further development. And this is very difficult. It is already obvious that not everyone in the country agrees with the announced preliminary election results. And, as you know, any legitimacy arises solely from public trust, exclusively from trust. Doubts (about the election results) on such a large scale is a direct path to violence, to conflict, to public protest, which is growing. This is now what we are seeing, unfortunately,” z. [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309) on Facebook.
+> “Our neighbors in Belarus are going through difficult times now. They are trying to determine the vector of their further development. And this is very difficult. It is already obvious that not everyone in the country agrees with the announced preliminary election results. And, as you know, any legitimacy arises solely from public trust, exclusively from trust. Doubts (about the election results) on such a large scale is a direct path to violence, to conflict, to public protest, which is growing. This is now what we are seeing, unfortunately,” Z [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309) on Facebook.
 
-z. called on Belarus to show maximum tolerance and reject street violence.
+Z called on Belarus to show maximum tolerance and reject street violence.
 
-> "We call for the most open, albeit difficult, dialogue. Because only a broad dialogue will allow the citizens of Belarus to get out of a difficult crisis situation and honestly discuss further steps and formats of public interaction. Only mutual understanding between all parties can preserve the country's independence and ensure its further movement towards freedom and democracy. Otherwise, the escalation of violence will grow, and this is fraught with very bitter consequences," z. [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309).
+> "We call for the most open, albeit difficult, dialogue. Because only a broad dialogue will allow the citizens of Belarus to get out of a difficult crisis situation and honestly discuss further steps and formats of public interaction. Only mutual understanding between all parties can preserve the country's independence and ensure its further movement towards freedom and democracy. Otherwise, the escalation of violence will grow, and this is fraught with very bitter consequences," Z [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309).
 
 [Image]
-> “Belarus must adhere to the maximum democratic standards generally recognized in the civilized world. And try to provide its own people with their rights and freedoms in full. This is the only way to keep the hope of overcoming the crisis… Ukraine and I personally are extremely interested in Belarus being a truly independent and democratic country with a strong economy and stable social relations. Belarus is our closest neighbor, and therefore we are not at all indifferent to what is happening there and what will happen to our friends further," z. [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309).
+> “Belarus must adhere to the maximum democratic standards generally recognized in the civilized world. And try to provide its own people with their rights and freedoms in full. This is the only way to keep the hope of overcoming the crisis… Ukraine and I personally are extremely interested in Belarus being a truly independent and democratic country with a strong economy and stable social relations. Belarus is our closest neighbor, and therefore we are not at all indifferent to what is happening there and what will happen to our friends further," Z [said](https://www.facebook.com/zelenskiy95/posts/2601470510103309).
 
 ---
 
@@ -3602,7 +3602,7 @@ The result isn't unlike a horrible accident, except it’s been caused by a form
 
 ---
 
-Recall what President Volodymyr z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what President Volodymyr Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -3684,7 +3684,7 @@ The result isn't unlike a horrible accident, except it’s been caused by a form
 
 ---
 
-Recall what President Volodymyr z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what President Volodymyr Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -3798,7 +3798,7 @@ By the time Lukashenko and his son arrived, the demonstration against him had en
 
 [Image]
 
-**Ukraine was different.** No one remembers exactly what happened during the 1990s. Businessmen in cahoots with the country’s top politicians eventually captured the state in 2000. Corruption was rampant, independent journalists were killed. Ordinary Ukrainians rose up in 2004 against falsified presidential elections (Orange Revolution) and again in 2013 after a Kremlin-installed stooge and his friends began robbing rival oligarchs (Revolution of Dignity). Russia annexed Crimea and invaded eastern Ukraine in early 2014. The country has been a mess ever since. In 2019, Ukrainians put a clown, Volodymyr z., in charge in the circus.
+**Ukraine was different.** No one remembers exactly what happened during the 1990s. Businessmen in cahoots with the country’s top politicians eventually captured the state in 2000. Corruption was rampant, independent journalists were killed. Ordinary Ukrainians rose up in 2004 against falsified presidential elections (Orange Revolution) and again in 2013 after a Kremlin-installed stooge and his friends began robbing rival oligarchs (Revolution of Dignity). Russia annexed Crimea and invaded eastern Ukraine in early 2014. The country has been a mess ever since. In 2019, Ukrainians put a clown, Volodymyr Z, in charge in the circus.
 
 [Image]
 
@@ -3818,9 +3818,9 @@ The deliberate and systematic destruction of the culture of an ethnic group is c
 
 Belarusian officials have been accused of carrying out policies of ethnocide and linguicide for more than 25 years.
 
-As the election campaign was launched in Kyiv on April 22, 2019, Volodymyr z. [addressed his adoring fans](https://www.youtube.com/watch?v=lEM2JIfHcSM) and delivered a short message to people living in other post-Soviet countries.
+As the election campaign was launched in Kyiv on April 22, 2019, Volodymyr Z [addressed his adoring fans](https://www.youtube.com/watch?v=lEM2JIfHcSM) and delivered a short message to people living in other post-Soviet countries.
 
-> “While I’m still not officially the president, let me say the following words as an ordinary citizen of Ukraine to citizens of all former states of the USSR: Look at us, everything is possible,” z. [said](https://www.youtube.com/watch?v=lEM2JIfHcSM).
+> “While I’m still not officially the president, let me say the following words as an ordinary citizen of Ukraine to citizens of all former states of the USSR: Look at us, everything is possible,” Z [said](https://www.youtube.com/watch?v=lEM2JIfHcSM).
 
 Fast forward 16 months. A revolution has been underway for three weeks in neighboring Belarus. What has Ukraine’s president said about the desire of people there to live in a free, democratic and independent country?
 
@@ -3852,7 +3852,7 @@ Squads of women carrying flowers marching under banners, reading “mothers with
 
 The results are in: Ukraine’s response to the COVID-19 has failed. Miserably. Looking on the bright side, it’s not as if anyone expected competency from state officials or success in mitigating the spread of the disease.
 
-Historians who look back at the mess years from now will note that Ukrainian President Volodymyr z. early on expressed confidence in his government’s ability to avoid unnecessary deaths.
+Historians who look back at the mess years from now will note that Ukrainian President Volodymyr Z early on expressed confidence in his government’s ability to avoid unnecessary deaths.
 
 ---
 
@@ -3860,7 +3860,7 @@ Historians who look back at the mess years from now will note that Ukrainian Pre
 
 At the beginning of the outbreak, Ukraine had a chance to contain the novel virus by identifying each person bringing the infection into the country and stopping it before it spread in the community.
 
-President Volodymyr z. [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs)us not to worry on January 31.
+President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs)us not to worry on January 31.
 
 [Image]
 
@@ -3994,7 +3994,7 @@ The result isn't unlike a horrible accident, except it’s been caused by a form
 
 ---
 
-Recall what President Volodymyr z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
+Recall what President Volodymyr Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
 [Image]
 
@@ -4711,9 +4711,9 @@ Like the majority of Americans, Trump can’t find Belarus on a map, but that’
 
 KYIV. It’s day whatever of Ukraine’s COVID-19 disaster and the weekly number of patients admitted to the nation’s hospitals with pneumonia has almost quadrupled compared to last month. Officials say we are quickly moving toward overwhelming the country’s healthcare system and seeing even more devastating illness and death.
 
-President Volodymyr z. has not been helpful. Two months ago, he said he **wanted** to be infected with the virus to prove it’s not so scary - a macho stunt worthy of his disruptor idol Jair Bolsonaro, President of Brazil.
+President Volodymyr Z has not been helpful. Two months ago, he said he **wanted** to be infected with the virus to prove it’s not so scary - a macho stunt worthy of his disruptor idol Jair Bolsonaro, President of Brazil.
 
-Yesterday in Bratislava, z. said Ukraine is experiencing the second wave of COVID-19 infections.
+Yesterday in Bratislava, Z said Ukraine is experiencing the second wave of COVID-19 infections.
 
 The [positive dynamics of morbidity](https://abdymok.substack.com/p/postive-dynamics-of-morbidity) in over the last six months have been driven by [pathological bad thinking,](https://abdymok.substack.com/p/cataplectic-non-cognitivism) whacko algorithms, [formulations of set theory without variables](https://abdymok.substack.com/p/zeteams-replication-crisis), [kooky mitigation models for flattening the curve](https://abdymok.substack.com/p/ukraines-ugly-little-covid-19-secrets), [magical epidemic fantasies](https://abdymok.substack.com/p/magical-epidemic-thinking-22a), [irredeemable health officials](https://abdymok.substack.com/p/ukraines-irredeemable-health-ministry), [pandemic politics](https://abdymok.substack.com/p/zes-covid-clowns)and false assumptions promulgated by [poorly calibrated agents](https://abdymok.substack.com/p/what-makes-soup-soup) with [bad ideas](https://abdymok.substack.com/p/ukraines-human-sacrifice-experiment) who abandoned the [precautionary principle](https://abdymok.substack.com/p/the-precautionary-principle).
 
@@ -4745,7 +4745,7 @@ Detailed instructions are available on the Internet.
 
 ---
 
-## z.'s Covid-19 Disaster
+## Z's Covid-19 Disaster
 
 *Date: 2020-09-30 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -4753,11 +4753,11 @@ Detailed instructions are available on the Internet.
 
 [Image]
 
-President Volodymyr z. [said](https://www.facebook.com/watch/?v=525316318338557) last week in Zagreb that Ukraine is currently experiencing a \*second wave\* of Covid-19 infections and that the country’s borders would be opened for foreigners “***as soon as the ascertainment rate of coronavirus disease in Ukraine improves***.”
+President Volodymyr Z [said](https://www.facebook.com/watch/?v=525316318338557) last week in Zagreb that Ukraine is currently experiencing a \*second wave\* of Covid-19 infections and that the country’s borders would be opened for foreigners “***as soon as the ascertainment rate of coronavirus disease in Ukraine improves***.”
 
-z. said Ukraine did well during the \*first wave\* of the disease when new daily infections ranged from 100 to 300. The \*first wave\* ended mid April.
+Z said Ukraine did well during the \*first wave\* of the disease when new daily infections ranged from 100 to 300. The \*first wave\* ended mid April.
 
-Since the end of January, z. has successfully avoided criticism of how officials have handled Covid-19 spread. He has met the media on his own terms, in venues where he filibusters over hard questions. The President’s Office, meanwhile, has cultivated credulous foreign journo brownnosers and used them as conduits for inaccurate, self-serving success stories on mitigating the spread of the disease.
+Since the end of January, Z has successfully avoided criticism of how officials have handled Covid-19 spread. He has met the media on his own terms, in venues where he filibusters over hard questions. The President’s Office, meanwhile, has cultivated credulous foreign journo brownnosers and used them as conduits for inaccurate, self-serving success stories on mitigating the spread of the disease.
 
 The Covid-19 situation is ***not improving*** in Ukraine and is ***unlikely to improve*** any time in the near future.
 
@@ -4767,7 +4767,7 @@ Meanwhile, parliament on September 30 cancelled scheduled plenary sessions and w
 
 **Prequel to the disaster**
 
-z. [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
+Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) us not to worry on January 31.
 
 [Image]
 
@@ -4795,7 +4795,7 @@ The head of the President’s Office of Ukraine Andriy Yermak wrote a [long fran
 
 Yermak said there are no simple and obvious solutions for alleviating misery, but that the trip would allow them to better “discuss something, write very incriminating Facebook posts, give global advice on how to solve everything in three days.”
 
-> In 2019, thanks to the victory of Volodymyr z., many people got the long-awaited chance to implement in Ukraine the positive changes and programs that have been blocked for decades, he said.
+> In 2019, thanks to the victory of Volodymyr Z, many people got the long-awaited chance to implement in Ukraine the positive changes and programs that have been blocked for decades, he said.
 
 “Do what you were hired for and what society expects of you,” Yermak said.
 
@@ -4823,7 +4823,7 @@ The term 'pale' (*черта́ осе́длости*) means literally the area e
 
 Z in late August said his country’s ‘home’ is in Europe.
 
-> "I have told many European leaders that they should tell Ukrainians what steps we need to take for EU membership,” z. [said](https://www.youtube.com/watch?v=uPDn55u2Xs8) in an interview with Euronews.
+> "I have told many European leaders that they should tell Ukrainians what steps we need to take for EU membership,” Z [said](https://www.youtube.com/watch?v=uPDn55u2Xs8) in an interview with Euronews.
 
 The president views critics as obstacles to his higher popularity rating. His rejection of *mere civility* ― a minimal, occasionally contemptuous adherence to culturally contingent rules of respectful behavior ― keeps Ukraine beyond Europe’s pale.
 
@@ -4843,7 +4843,7 @@ cf. [Thug Life](https://abdymok.substack.com/p/thug-life) (May 6, 2020)
 
 ---
 
-## z.'s 'Second Wave'
+## Z's 'Second Wave'
 
 *Date: 2020-10-08 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -4851,11 +4851,11 @@ cf. [Thug Life](https://abdymok.substack.com/p/thug-life) (May 6, 2020)
 
 [Image]
 
-Google search spits out more than [10 million links](https://www.google.com/search?q=%D0%B7%D0%B5%D0%BB%D0%B5%D0%BD%D1%81%D0%BA%D0%B8%D0%B9+%D0%B2%D1%82%D0%BE%D1%80%D0%B0%D1%8F+%D0%B2%D0%BE%D0%BB%D0%BD%D0%B0&oq=%D0%B7%D0%B5%D0%BB&aqs=chrome.0.69i59j69i57j46j0l4j46.1264j0j15&sourceid=chrome&ie=UTF-8) for a search of “зеленский вторая волна” (z. second wave). Ukraine’s president has given a false sense of how the Covid-19 pandemic is actually developing in his country.
+Google search spits out more than [10 million links](https://www.google.com/search?q=%D0%B7%D0%B5%D0%BB%D0%B5%D0%BD%D1%81%D0%BA%D0%B8%D0%B9+%D0%B2%D1%82%D0%BE%D1%80%D0%B0%D1%8F+%D0%B2%D0%BE%D0%BB%D0%BD%D0%B0&oq=%D0%B7%D0%B5%D0%BB&aqs=chrome.0.69i59j69i57j46j0l4j46.1264j0j15&sourceid=chrome&ie=UTF-8) for a search of “зеленский вторая волна” (Z second wave). Ukraine’s president has given a false sense of how the Covid-19 pandemic is actually developing in his country.
 
 The COVID-19 incidence pattern in Ukraine [shows](https://covid19.rnbo.gov.ua/?fbclid=IwAR1TXauFhOd3A9iOgaRCiZ27py5Ngz2hmDkaVuZj_7U-Oe3ejIQn34wBT9I) clearly the first wave continues to rise with little or no interruption. This is particularly common in the world’s poorer countries with inefficient and corrupt health systems.
 
-Months of z. blabbing about a “second wave” has been at best misleading and at worst diminishes the brutally unrelenting rise of the infection rate, which conforms unequivocally to the global infection rate: it rose fast, stabilized somewhat in late April and early May, before shooting up in July, August, September and October.
+Months of Z blabbing about a “second wave” has been at best misleading and at worst diminishes the brutally unrelenting rise of the infection rate, which conforms unequivocally to the global infection rate: it rose fast, stabilized somewhat in late April and early May, before shooting up in July, August, September and October.
 
 ---
 
@@ -4863,7 +4863,7 @@ Months of z. blabbing about a “second wave” has been at best misleading and 
 
 ---
 
-Recall what z. [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31, 2020 about the pandemic.
+Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31, 2020 about the pandemic.
 
 [Image]
 
@@ -4879,7 +4879,7 @@ The result isn't unlike a horrible accident, except it’s been caused by an une
 
 *Date: 2020-10-20 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z. wants you to ignore his pandemic failure*
+*Z wants you to ignore his pandemic failure*
 
 [Image]
 
@@ -4893,7 +4893,7 @@ Manipulating the environment to test a hypothesis is a bad idea when it could ki
 
 At the beginning of the outbreak, Ukraine had a chance to contain the novel virus by identifying each person bringing the infection into the country and stopping it before it spread throughout the community.
 
-President Volodymyr z. [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs)us not to worry on January 31.
+President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs)us not to worry on January 31.
 
 [Image]
 
@@ -4935,7 +4935,7 @@ Which brings us to the Zollman Effect, which posits that groups with more networ
 
 ---
 
-## What Biden's Win Means for z.
+## What Biden's Win Means for Z
 
 *Date: 2020-11-05 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -4947,7 +4947,7 @@ The immediate result of the U.S. presidential election as of this writing is no 
 
 [Image]
 
-Trump and z. met only once, in New York City on September 25, 2019, the day after the House of Representatives began a formal [impeachment inquiry into Trump](https://en.wikipedia.org/wiki/Impeachment_inquiry_against_Donald_Trump "Impeachment inquiry against Donald Trump"). Both presidents ***denied*** allegations that U.S. administration officials for months had demanded Ukraine open investigations into Joe Biden and his son Hunter Biden, as well as a conspiracy theory involving a Democratic National Committee server.
+Trump and Z met only once, in New York City on September 25, 2019, the day after the House of Representatives began a formal [impeachment inquiry into Trump](https://en.wikipedia.org/wiki/Impeachment_inquiry_against_Donald_Trump "Impeachment inquiry against Donald Trump"). Both presidents ***denied*** allegations that U.S. administration officials for months had demanded Ukraine open investigations into Joe Biden and his son Hunter Biden, as well as a conspiracy theory involving a Democratic National Committee server.
 
 They lied.
 
@@ -4957,19 +4957,19 @@ They lied.
 
 ---
 
-## z.'s Zoom Bubble
+## Z's Zoom Bubble
 
 *Date: 2020-11-13 | Status: Published | Audience: only_paid | Type: newsletter*
 
 *Ukraine's germy leader sends greetings from Feofaniya*
 
-President Volodymyr z. on November 13, 2020 published a 50-second video from his VIP ward at Feofaniya Clinical Hospital, a state-owned medical facility providing services to Ukraine’s top sick officials. It is located on the southern outskirts of Kyiv.
+President Volodymyr Z on November 13, 2020 published a 50-second video from his VIP ward at Feofaniya Clinical Hospital, a state-owned medical facility providing services to Ukraine’s top sick officials. It is located on the southern outskirts of Kyiv.
 
 As of this writing, almost all of the country’s leading bureaucrats are incapacitated by the COVID-19 disease, including the president, his chief of staff, defense minister, finance minister, parliament speaker, deputy parliament speaker, deputy prime minister(s), et cetera. All are receiving excellent care.
 
 ---
 
-Recall what Volodymyr z. said on January 31, 2020 about the COVID-19 pandemic.
+Recall what Volodymyr Z said on January 31, 2020 about the COVID-19 pandemic.
 
 [Image]
 
@@ -4977,7 +4977,7 @@ On March 26, 2020, the president said this:
 
 > "The Prime Minister has been tasked with resolving the issue of so-called VIP chambers in hospitals and repealing all regulations that require it. …There will be no luxury accommodations for members of the Central Committee," the president [exclaimed](https://www.ukrinform.ua/rubric-polytics/2905762-zelenskij-pro-vippalati-u-nas-ne-sovok-ne-bude-luksovih-palat-dla-cleniv-ck.html).
 
-z. pathetically claimed that no politician or businessman would be afforded better conditions than ordinary Ukrainians infected with COVID-19.
+Z pathetically claimed that no politician or businessman would be afforded better conditions than ordinary Ukrainians infected with COVID-19.
 
 > “You will be in the same wards and hospitals that you have built in this country in 28 years. Maybe then you will understand what it is like not to be able to be treated in Switzerland or Israel,” he [said](https://www.ukrinform.ua/rubric-polytics/2905762-zelenskij-pro-vippalati-u-nas-ne-sovok-ne-bude-luksovih-palat-dla-cleniv-ck.html).
 
