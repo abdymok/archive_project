@@ -6,7 +6,7 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- Current file: `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy has been reconciled against the GitHub commit history; no re-proofreading of those months is needed. Next file: `2025.md`, starting January 1.
+- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through January 24, 2025. Next starting date: January 25.
 - `2024.md` has now been proofread from the user's reported prior stopping point (October 10) through December 31. The user's latest handover supplied the prior work log: July passages finalized, July 24–29 edited, August reviewed and polished, late summer corrected, September polished and proofread, and October edits reviewed through October 10.
 - October 11–December 31 edits were saved in separate checkpoint commits. Each commit message records the next starting date. Commits:
   - `1145a779b05f296b2a6323bc6fc5d8595b2e3314` — through October 16; next October 17.
@@ -30,6 +30,12 @@ Last updated: 2026-11-27
 - A December 27 sentence needs author review for meaning and grammar: “For a new feature, from misery to depression, over to Dnipro, a five-hour drive southeast of Kyiv, where *esprit de corps* are cherry-picked quotes illustrated by Ed’s snaps, all of which are spectacularly muddy.” Do not silently rewrite its intended meaning.
 - A few quotations and factual/source attributions were left intact rather than silently altered. The separate source/link verification pass remains outstanding.
 - Preserve the author's voice, arguments, historical content and tone. Continue flagging uncertain factual, source and attribution issues.
+
+## 2025 progress
+
+- Sentence-level proofreading has begun. January 2–24 was reviewed and corrected in this session. Commit `930b26770e5749846202ac889aa70db98e3fcbb5` records the checkpoint; next starting date is January 25.
+- The file contains 280 posts and approximately 14,195 lines. Earlier commits in the file history cover initial archive normalization, malformed-link repairs, Z normalization, and scattered typo/duplicate-word fixes. Do not assume those commits represent a complete sentence-level pass; this session is establishing dated proofreading checkpoints.
+- A sentence in the January 17 entry is syntactically unclear: “I took a day off from scowling and screaming at MAGA stars who continue to spawn in order to luxuriate in Scott’s appearance before the US Senate Finance Committee (that I want to work hard on at least one equality vs equity problem I am interested in).” Leave for author review rather than guessing at its intended meaning.
 
 ## 2023 progress
 
