@@ -7,8 +7,8 @@ Last updated: 2026-11-27
 - Repository: `abdymok/archive_project`
 - Branch: `main`
 - Current file: `2024.md`, sentence-level review in progress.
-- Reviewed the opening section, lines 1–240, covering the January 1–8 entries. Five clear copy edits were saved in commit `3882ae79265369b590b518cf9bffb438cd1603c5`: subject-verb agreement for Taiwan's presidential election, caption spacing, quotation punctuation, and date punctuation.
-- Next restart point: line 241, continuing the January 8 entry. Do not repeat lines 1–240.
+- Reviewed lines 1–480, covering January 1–14 entries and the beginning of the January 14 entry. Five clear edits were saved in commit `3882ae79265369b590b518cf9bffb438cd1603c5`; seven further copy edits were saved in commit `0f0bee22719a0f6848847b7bfaa204384b530447` (grammar, punctuation, caption spacing, and wording).
+- Next restart point: line 481, continuing the January 14 entry. Do not repeat lines 1–480.
 - Important correction to the previous chat update: the repository's prior handover file did not record any completed 2024 proofreading. The earlier claim that January and early February had been reviewed and that commits `4ae8801` and `95b21f6` represented this work is not supported by the current repository checkpoint. Treat the current verified progress above as authoritative.
 - `2023.md` sentence-level proofreading is complete through December 29. Do not restart that pass.
 - `2022.md` October–December sentence-level proofreading is complete; January–September was previously reviewed. Do not repeat it.
