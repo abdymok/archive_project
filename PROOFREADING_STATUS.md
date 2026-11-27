@@ -6,7 +6,7 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- Current file: `2024.md` is provisionally complete from July through December 31, based on the user's latest handover plus the commits listed below. January–June must be reconciled against earlier commit history before moving to `2025.md`.
+- Current file: `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy has been reconciled against the GitHub commit history; no re-proofreading of those months is needed. Next file: `2025.md`, starting January 1.
 - `2024.md` has now been proofread from the user's reported prior stopping point (October 10) through December 31. The user's latest handover supplied the prior work log: July passages finalized, July 24–29 edited, August reviewed and polished, late summer corrected, September polished and proofread, and October edits reviewed through October 10.
 - October 11–December 31 edits were saved in separate checkpoint commits. Each commit message records the next starting date. Commits:
   - `1145a779b05f296b2a6323bc6fc5d8595b2e3314` — through October 16; next October 17.
@@ -22,7 +22,7 @@ Last updated: 2026-11-27
   - `1021e0128e794e265ea564a33a496b80c8b4495b` — through December 31; next January 2025.
   - `f953c1dc4dbb0795e06c2216b830f76a55c2291f` — final 2024 cleanup.
 - Calendar gaps above reflect gaps in dated archive entries, not skipped proofreading.
-- A previous version of this handover claimed the 2024 pass was only at lines 1–480 / January 1–14. That conflicts with the user's newer explicit handover and is superseded for workflow purposes. The earlier January–June progress is not re-audited in this session; do not restart it without checking the user's earlier checkpoints. The next session must resolve this discrepancy before treating 2024 as fully complete or starting 2025.
+- Reconciliation completed November 27: the `2024.md` path history contains an opening January proofreading commit, a January 8–15 checkpoint, additional January checkpoints, and successive date-specific checkpoints across February, March, April, May, June and early July. The history then continues through July–December. This confirms the older line-480 / January 1–14 status note was stale. January–June are already covered and must not be re-proofread.
 
 ## 2024 unresolved items
 
@@ -44,7 +44,7 @@ Last updated: 2026-11-27
 
 ## Next work
 
-1. Reconcile January–June 2024 against earlier GitHub commits and the user's prior checkpoints. Do not re-proofread those months until the existing work is established. If complete, continue sentence-level proofreading in `2025.md`, then `2026.md`, inspecting each file's actual contents and commits before editing.
+1. Continue sentence-level proofreading in `2025.md` from January 1, then `2026.md`, inspecting each file's actual contents and commits before editing. Do not repeat the completed 2024 pass.
 2. Record each checkpoint in its own GitHub commit, with the next starting date in the commit message.
 3. Update this handover after each meaningful checkpoint so work is not repeated.
 4. Complete link and image integrity checks for `2022.md`, `2023.md`, `2024.md`, `2025.md` and `2026.md`.
