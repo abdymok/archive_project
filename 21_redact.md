@@ -99,7 +99,7 @@ My advice is to not eat any of this crap. Stick with WinWay’s dried Papaya sti
 [Image]
 *Photo c/o abdymok*
 
-What links the President of Ukraine, Volodymyr Zelensky, to protests in Belarus against strongman Aleksander Lukashenko, Russia’s annexation of Crimea and occupation of areas in Donbas?
+What links the President of Ukraine, Volodymyr z., to protests in Belarus against strongman Aleksander Lukashenko, Russia’s annexation of Crimea and occupation of areas in Donbas?
 
 It’s not difficult to unravel several threads that hold together an extraordinary mystery involving Ukraine’s moron president, Russia’s secret services, conspiracies at the highest level, and at least one moving target, now running for his life with a million dollar price on his head.
 
@@ -145,7 +145,7 @@ All this is apropos of the list of Wagner PMC fighters Ukraine’s ex-State Secu
 
 ---
 
-The order given in July 2020 to scupper an attempt by Ukraine’s security services to lure Wagner PMC fighters to Kyiv in order to arrest them has amazed intelligence agencies in western capitals. The months-long state-sponsored cover up of the decision has irritated Zelensky’s critics in Ukraine’s parliament.
+The order given in July 2020 to scupper an attempt by Ukraine’s security services to lure Wagner PMC fighters to Kyiv in order to arrest them has amazed intelligence agencies in western capitals. The months-long state-sponsored cover up of the decision has irritated z.’s critics in Ukraine’s parliament.
 
 ---
 
@@ -159,7 +159,7 @@ The order given in July 2020 to scupper an attempt by Ukraine’s security servi
 
 **Andriy Yermak, Head of the President’s Office of Ukraine, is in a lot of trouble.**
 
-> “The truth is that in 2018 I gave authorization to prepare this operation, which was the most difficult one in the history of the Ukrainian special services. The truth is that our intelligence services, in cooperation with Western partners, prepared it brilliantly, down to the smallest detail. And the bitter truth is that in the last hours before the arrest of the criminals, information about the operation was leaked from the President’s Office of Ukraine to Russia. In the summer of 2020, a year after I left office, this happened. And it is the direct responsibility of Volodymyr Zelensky," ex-President Petro Poroshenko said in a [video](https://www.facebook.com/petroporoshenko/posts/2385129268288118) posted to his Facebook account on March 4, 2021.
+> “The truth is that in 2018 I gave authorization to prepare this operation, which was the most difficult one in the history of the Ukrainian special services. The truth is that our intelligence services, in cooperation with Western partners, prepared it brilliantly, down to the smallest detail. And the bitter truth is that in the last hours before the arrest of the criminals, information about the operation was leaked from the President’s Office of Ukraine to Russia. In the summer of 2020, a year after I left office, this happened. And it is the direct responsibility of Volodymyr z.," ex-President Petro Poroshenko said in a [video](https://www.facebook.com/petroporoshenko/posts/2385129268288118) posted to his Facebook account on March 4, 2021.
 
 ---
 
@@ -415,7 +415,7 @@ History will surely note this absurdly ill-timed Instagram selfie. On Wednesday,
 
 In addition to being tactless, the post illustrates the confusion about what values animate some Ukrainian public servants, as well as the kinds of behavior that might alienate their American counterparts. Expectations in Kyiv that a meeting at the White House would produce more than diplomatic pablum were delusional. On the other hand, a [study](https://www.washingtonpost.com/news/monkey-cage/wp/2014/04/07/the-less-americans-know-about-ukraines-location-the-more-they-want-u-s-to-intervene/) showed less than 16% of Americans can find Ukraine on a map. Even fewer would be able to accurately estimate the cost of building the new 10-acre embassy in Kyiv, nicknamed Fortress Ukraine - the fourth largest U.S. bilateral mission in Europe.
 
-Which brings us to the 2,100-word joint statement issued following the two-hour chit chat between Presidents Joe Biden and Volodymyr Zelensky. “[Ukraine’s success is central to the global struggle between democracy and autocracy](https://www.president.gov.ua/en/news/spilna-zayava-shodo-strategichnogo-partnerstva-ukrayini-ta-s-70485),” it said.
+Which brings us to the 2,100-word joint statement issued following the two-hour chit chat between Presidents Joe Biden and Volodymyr z.. “[Ukraine’s success is central to the global struggle between democracy and autocracy](https://www.president.gov.ua/en/news/spilna-zayava-shodo-strategichnogo-partnerstva-ukrayini-ta-s-70485),” it said.
 
 > As we face this challenge together, we stand shoulder-to-shoulder, optimistic about our ambitious common goals to advance democracy, deliver justice, enhance prosperity, and bolster security for Ukraine. Ukraine has achieved progress in building institutions with integrity and intends, with U.S. support, to continue to counter corruption, ensure accountability, safeguard human rights, realize the aspirations of its citizens, and create favorable conditions for attracting foreign direct investment and driving growth.   - [Joint Statement](https://www.president.gov.ua/en/news/spilna-zayava-shodo-strategichnogo-partnerstva-ukrayini-ta-s-70485)
 
@@ -520,7 +520,7 @@ According to Bezuhla, **Plan "Г"** *is* the name of a contingency scenario work
 
 [Image]
 
-***Ukraine’s secret services lured more than two dozen Russian mercenaries to Minsk in a botched attempt to hold them accountable for crimes they confessed to.***This is not complex. ***President Volodymyr Zelensky and head of the President’s Office Andriy Yermak first denied there was any such operation, then lied about it repeatedly.*** This also is not complex.
+***Ukraine’s secret services lured more than two dozen Russian mercenaries to Minsk in a botched attempt to hold them accountable for crimes they confessed to.***This is not complex. ***President Volodymyr z. and head of the President’s Office Andriy Yermak first denied there was any such operation, then lied about it repeatedly.*** This also is not complex.
 
 [Image]
 
@@ -849,7 +849,7 @@ cf. [Plan “Г”](https://abdymok.substack.com/p/ukraines-plan-)
 
 [Image]
 
-Kyiv Post columnist killvlogger Serhiy Leshchenko on November 18 devoted almost half of his daily [screed](https://www.youtube.com/watch?v=2Lf-5o48xbA&t=1432s) to Bellingcat’s [report](https://www.bellingcat.com/news/uk-and-europe/2021/11/17/inside-wagnergate-ukraines-brazen-sting-operation-to-snare-russian-mercenaries/), titled Inside Wagnergate: Ukraine’s Brazen Sting Operation to Snare Russian Mercenaries, and the reaction of President Volodymyr Zelensky’s critics to it.
+Kyiv Post columnist killvlogger Serhiy Leshchenko on November 18 devoted almost half of his daily [screed](https://www.youtube.com/watch?v=2Lf-5o48xbA&t=1432s) to Bellingcat’s [report](https://www.bellingcat.com/news/uk-and-europe/2021/11/17/inside-wagnergate-ukraines-brazen-sting-operation-to-snare-russian-mercenaries/), titled Inside Wagnergate: Ukraine’s Brazen Sting Operation to Snare Russian Mercenaries, and the reaction of President Volodymyr z.’s critics to it.
 
 He wasn’t making sense, so I turned off the volume, fed the cat and admired Serhiy’s bright red [#savekyivpost](https://twitter.com/search?q=%23savekyivpost&src=typed_query) turtleneck.
 
@@ -893,7 +893,7 @@ On November 19, the [ex-Kyiv Post team](http://savethekyivpost.com/?fbclid=IwAR0
 
 Leshchenko, we recall, figured prominently in [undercover video recordings](https://bit.ly/3nv7hK4) documenting under-the-table shenanigans involving appointments to public office.
 
-According to the Sarajevo-based [Organized Crime and Corruption Reporting Project](https://www.occrp.org/en/), the videos were recorded between late August and early October 2019, when Zelensky’s new presidential administration was trying to fill key government posts.
+According to the Sarajevo-based [Organized Crime and Corruption Reporting Project](https://www.occrp.org/en/), the videos were recorded between late August and early October 2019, when z.’s new presidential administration was trying to fill key government posts.
 
 The press service of Ukraine’s Ministry of Internal Affairs [said](https://mvs.gov.ua/press-center/news/na-ministra-agrarnoyi-politiki-planuvali-zamax-policiya-predyavila-pidozri-zlovmisnikam-denis-monastirskii) American diplomats have promised to assist in the investigation of the bizarre alleged murder plot.
 
@@ -1092,7 +1092,7 @@ Journalist Mykhailo Tkach of the Kyiv-based Ukrainska Pravda ezine broke the *St
 *Kill zone steel door*
 
 [Image]
-*U.S. Secretary of Defense Lloyd J. Austin III is greeted by Ukrainian President Volodymyr Zelensky, Kyiv, Ukraine, Oct. 19, 2021.*
+*U.S. Secretary of Defense Lloyd J. Austin III is greeted by Ukrainian President Volodymyr z., Kyiv, Ukraine, Oct. 19, 2021.*
 
 Sweaty little fuckpigs working at the President’s Office have been looking for clichés Z can reel off at the [press conference](https://www.rferl.org/a/ukraine-zelenskiy-russia-escalation/31580464.html) marking “the equator of his cadence.”
 
@@ -1145,7 +1145,7 @@ Looking on the bright side, this means that if you’re a good journalist in Ukr
 
 ---
 
-[Zelensky: Triumph of Inadequacy](https://www.youtube.com/watch?v=60OT6o_Dmuw)
+[z.: Triumph of Inadequacy](https://www.youtube.com/watch?v=60OT6o_Dmuw)
 
 ---
 
@@ -1157,7 +1157,7 @@ Looking on the bright side, this means that if you’re a good journalist in Ukr
 
 [Image]
 
-A scant three days remain before the planned insurrection in Kyiv announced by President Volodymyr Zelensky on Friday. As of this writing, Ukraine’s law-enforcement agencies aren’t providing any details.
+A scant three days remain before the planned insurrection in Kyiv announced by President Volodymyr z. on Friday. As of this writing, Ukraine’s law-enforcement agencies aren’t providing any details.
 
 Journalists at [Buzzfeed](https://www.buzzfeed.com/christopherm51) and [Politico](https://www.politico.eu/article/ukraine-zelenskiy-coup-akhmetov-russia/?fbclid=IwAR2jFuyfn-w7vSQIOTm8mp1VWAlSV3a3x8Wz8q1ojh4uhgWxF9bUylqyCH8) have learned about the plot, which U.S. President Joe Biden [says](https://www.youtube.com/watch?v=Xlaj_7obgCE) he is also aware of.
 
@@ -1279,7 +1279,7 @@ On November 29, Lukashenko said Minsk would not sit idly on the sidelines if his
 
 ---
 
-I find myself veering away from the usual disjointed diplomatic bushwa about the coup d’etat announced by President Volodymyr Zelensky last week and concentrating on the increasingly probable all-out Russian invasion heralded by the masters of military boosterism.
+I find myself veering away from the usual disjointed diplomatic bushwa about the coup d’etat announced by President Volodymyr z. last week and concentrating on the increasingly probable all-out Russian invasion heralded by the masters of military boosterism.
 
 ---
 
@@ -1373,13 +1373,13 @@ For Putin, war is a collider (accelerator) of revolution. He cannot fail to unde
 
 **Qabalistic path**
 
-There is another specific reason why the issue should be settled now. No matter how ridiculous it may seem, Moscow today seems to be acting "in its own right." Formally, Russia does not need to look for a pretext for war, because it lies on the surface - Kyiv's failure to comply with the Minsk Agreements. The trajectory of Putin's dialogue with Biden is easy to imagine without a highly developed political imagination. For all claims, Putin will sadly and tiredly repeat: "Russia is acting within the framework of the signed agreements, and Ukraine is violating them. Just ask them about it.” And everyone understands this is so, generally speaking. Another thing is that everyone also understands that we are talking about an enslaving deal in its classic Wikipedia definition, a deal agreed to on extremely unfavorable terms that someone was forced to make due to a combination of difficult circumstances, which the other party took advantage of. I have more than once had to write about the difficult choice for Ukraine - between a suicidal war with an enemy whose economic and military power is many times greater than its own capabilities and a humiliating truce, especially during a period of intensive nation-state building. Such as the [Treaty of Brest-Litovsk](https://en.wikipedia.org/wiki/Treaty_of_Brest-Litovsk) comes to mind. But the main problem is that such an obscene peace treaty with the aggressor is not some hypothetical possibility, but a harsh reality for Ukraine. It has already been signed and is called the Minsk Agreements. The Minsk Agreements were signed at gunpoint after the hardest defeats of the Ukrainian army near Illovaisk and Debaltseve. By their nature, they differ little from the Brest truce signed by Lenin with the Germans, according to which, by the way, the Bolsheviks transferred to Germany most of Ukraine. Like the Bolshevik government (and any other government in such conditions), Ukraine, signing the agreements, hoped that they would not have to be fulfilled. But Lenin was more fortunate than Poroshenko and Zelensky: the revolution then occurred in Germany, but not in Russia. One way or another, Russia will not voluntarily abandon the Qabalistic path of the Minsk agreements, considering them as its legitimate war trophy. Since the Minsk format was formally recognized and legitimized by the West, it turns into a diplomatic impasse that prevents any compromise resolution of the Ukraine-Russia conflict, leaving only the two options outlined above: military annihilation or capitulation
+There is another specific reason why the issue should be settled now. No matter how ridiculous it may seem, Moscow today seems to be acting "in its own right." Formally, Russia does not need to look for a pretext for war, because it lies on the surface - Kyiv's failure to comply with the Minsk Agreements. The trajectory of Putin's dialogue with Biden is easy to imagine without a highly developed political imagination. For all claims, Putin will sadly and tiredly repeat: "Russia is acting within the framework of the signed agreements, and Ukraine is violating them. Just ask them about it.” And everyone understands this is so, generally speaking. Another thing is that everyone also understands that we are talking about an enslaving deal in its classic Wikipedia definition, a deal agreed to on extremely unfavorable terms that someone was forced to make due to a combination of difficult circumstances, which the other party took advantage of. I have more than once had to write about the difficult choice for Ukraine - between a suicidal war with an enemy whose economic and military power is many times greater than its own capabilities and a humiliating truce, especially during a period of intensive nation-state building. Such as the [Treaty of Brest-Litovsk](https://en.wikipedia.org/wiki/Treaty_of_Brest-Litovsk) comes to mind. But the main problem is that such an obscene peace treaty with the aggressor is not some hypothetical possibility, but a harsh reality for Ukraine. It has already been signed and is called the Minsk Agreements. The Minsk Agreements were signed at gunpoint after the hardest defeats of the Ukrainian army near Illovaisk and Debaltseve. By their nature, they differ little from the Brest truce signed by Lenin with the Germans, according to which, by the way, the Bolsheviks transferred to Germany most of Ukraine. Like the Bolshevik government (and any other government in such conditions), Ukraine, signing the agreements, hoped that they would not have to be fulfilled. But Lenin was more fortunate than Poroshenko and z.: the revolution then occurred in Germany, but not in Russia. One way or another, Russia will not voluntarily abandon the Qabalistic path of the Minsk agreements, considering them as its legitimate war trophy. Since the Minsk format was formally recognized and legitimized by the West, it turns into a diplomatic impasse that prevents any compromise resolution of the Ukraine-Russia conflict, leaving only the two options outlined above: military annihilation or capitulation
 
 **Pacta sunt servanda**
 
-Is there a way out? It's easy to give outside advice and write recommendations for someone else. In this sense, any passage on what it would be better for the Ukrainians to do if you do not live in Ukraine is initially flawed. Realizing all this, I would nevertheless venture to suggest that an attempt to implement the Minsk agreements in one format or another (of course, we are talking about the status of the occupied territories, elections and changes in the Constitution - the most painful part of the enslaving agreements) could be a more productive policy than an attempt to sabotage them at any cost, including the cost of a new war. I repeat, perhaps this is a deeply erroneous opinion, but, nevertheless, it has a right to exist. It's hard for me to say whether Poroshenko had an alternative and whether he could have refused to sign an agreement so unacceptable for Ukraine. I'm afraid this was not really possible. The threat of occupation not of part of the two regions, but of the whole of eastern Ukraine was at the time absolutely real and the Minsk agreements then made it possible to block this threat. As it turns out - only for a while. Since the days of ancient Rome, the basic principle of international law has been pacta sunt servanda (treaties must be enforced). All the same, there is one significant difference between Lenin and Zelensky in relation to the Brest truce - the Bolsheviks first lived up to their obligations under the treaty before tearing it up, waiting for the revolution in Germany and the collapse of the German army, not vice versa.
+Is there a way out? It's easy to give outside advice and write recommendations for someone else. In this sense, any passage on what it would be better for the Ukrainians to do if you do not live in Ukraine is initially flawed. Realizing all this, I would nevertheless venture to suggest that an attempt to implement the Minsk agreements in one format or another (of course, we are talking about the status of the occupied territories, elections and changes in the Constitution - the most painful part of the enslaving agreements) could be a more productive policy than an attempt to sabotage them at any cost, including the cost of a new war. I repeat, perhaps this is a deeply erroneous opinion, but, nevertheless, it has a right to exist. It's hard for me to say whether Poroshenko had an alternative and whether he could have refused to sign an agreement so unacceptable for Ukraine. I'm afraid this was not really possible. The threat of occupation not of part of the two regions, but of the whole of eastern Ukraine was at the time absolutely real and the Minsk agreements then made it possible to block this threat. As it turns out - only for a while. Since the days of ancient Rome, the basic principle of international law has been pacta sunt servanda (treaties must be enforced). All the same, there is one significant difference between Lenin and z. in relation to the Brest truce - the Bolsheviks first lived up to their obligations under the treaty before tearing it up, waiting for the revolution in Germany and the collapse of the German army, not vice versa.
 
-At least some of the problems would be behind us today and Ukraine, having temporarily normalized relations with the aggressor, could focus on the main thing - economic reforms and the creation of a nation state in its remaining territory. It is practically impossible to do this in conditions of a virtually unceasing war. Moreover, it would be much more difficult for Russia to further invade Ukraine. So, despite six years of victims laid on the altar of regaining control over lost territories, Ukraine found itself at exactly the same point as on the eve of the signing of the second Minsk Protocol - facing the threat of Russia occupying a third of its territory. Unfortunately, I am afraid that neither Zelensky nor Biden has any other way to prevent Russian aggression, but to start moving towards implementing the Minsk Protocol. Such is "cursed momentum."
+At least some of the problems would be behind us today and Ukraine, having temporarily normalized relations with the aggressor, could focus on the main thing - economic reforms and the creation of a nation state in its remaining territory. It is practically impossible to do this in conditions of a virtually unceasing war. Moreover, it would be much more difficult for Russia to further invade Ukraine. So, despite six years of victims laid on the altar of regaining control over lost territories, Ukraine found itself at exactly the same point as on the eve of the signing of the second Minsk Protocol - facing the threat of Russia occupying a third of its territory. Unfortunately, I am afraid that neither z. nor Biden has any other way to prevent Russian aggression, but to start moving towards implementing the Minsk Protocol. Such is "cursed momentum."
 
 ---
 
