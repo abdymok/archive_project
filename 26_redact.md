@@ -6951,7 +6951,7 @@ Have a great weekend!
 
 [1](#footnote-anchor-1)
 
-[New tapes. Umerov on his conversation with z.. Andrey is knocking everyone out. Mindich against Shmyhal. Project 23.](https://www.youtube.com/watch?v=GFnaLijpO1Q) (YouTube, May 1, 2025)
+[New tapes. Umerov on his conversation with Z. Andrey is knocking everyone out. Mindich against Shmyhal. Project 23.](https://www.youtube.com/watch?v=GFnaLijpO1Q) (YouTube, May 1, 2025)
 
 ---
 
@@ -16918,9 +16918,9 @@ What Trump said last night about Russia’s genocidal war against Ukraine.
 >
 > President Donald Trump: It was the hatred between Z and Putin. If I had been president that war would’ve never started. Zero chance. But it did start. So I inherited that war. I believe we’re very close to making a deal--
 >
-> Ross Douthat: Who-- who do you trust more, President Putin or President z.--
+> Ross Douthat: Who-- who do you trust more, President Putin or President Z--
 >
-> President Donald Trump: Well, I’d rather not say, but I get along with both. I believe that that war is going to end, and it’s gonna end soon. And the only reason it’s gonna end is because of me. There is tremendous hatred between President Putin and President z.. And-- you know, I--
+> President Donald Trump: Well, I’d rather not say, but I get along with both. I believe that that war is going to end, and it’s gonna end soon. And the only reason it’s gonna end is because of me. There is tremendous hatred between President Putin and President Z. And-- you know, I--
 >
 > Ross Douthat: Isn’t it more understandable coming from President Z, given that his country was actually invaded?
 >
