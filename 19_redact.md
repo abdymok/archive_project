@@ -185,9 +185,9 @@ lesya hasn’t made the archive public yet, so we have to rely on her and bihus.
 
 *Date: 2019-03-31 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*poroshenko, z., tymoshenko: 25%, 23%, 17%, respectively.*
+*poroshenko, Z, tymoshenko: 25%, 23%, 17%, respectively.*
 
-z., poroshenko, tymoshenko: 30%, 20%, 10%, respectively.
+Z, poroshenko, tymoshenko: 30%, 20%, 10%, respectively.
 
 the exercise will have been a success if the outcome is reversed.
 
@@ -247,7 +247,7 @@ z comes across as a likeable guy with many interesting stories. he tells the pyr
 
 ---
 
-## It doesn’t look good for z.
+## It doesn’t look good for Z
 
 *Date: 2019-04-14 | Status: Published | Audience: only_paid | Type: newsletter*
 
@@ -259,59 +259,59 @@ z comes across as a likeable guy with many interesting stories. he tells the pyr
 
 At least no one will be able to argue that Ukrainians knew little about the person they gambled on to become the country’s sixth president.
 
-Volodymyr z. — who calls himself **z.** —since late February has been the odds-on betting favorite to win the second round of Ukraine’s presidential election on April 21.
+Volodymyr Z — who calls himself **z.** —since late February has been the odds-on betting favorite to win the second round of Ukraine’s presidential election on April 21.
 
 The three-month campaign of the 41-year old from Kryviy Rih has featured upbeat video clips and choreographed remarks, almost exclusively from television screens and smartphones. His social media messages on [Facebook](https://www.facebook.com/zelenskiy95?epa=SEARCH_BOX) and [Instagram](https://www.instagram.com/zelenskiy_official/) range from [pink unicorns](https://www.facebook.com/ze2019official/videos/1504131519724418/) to [bare-breasted calisthenics](https://www.instagram.com/p/Bp6bCrNlxHJ/). They have resonated with ordinary Ukrainians much more deeply than sensible arguments made seriously by his opponent, incumbent President Petro Poroshenko.
 
-In a bizarre [three-and-a-half hour interview](http://bit.ly/2Uzp5X2%29) posted to YouTube days before announcing his candidacy on January 1, 2019, z. said he was a newcomer to politics, that he had not prepared a platform to run on, acquainted himself with international leaders or foreign policy matters or otherwise prepared himself to govern the country.
+In a bizarre [three-and-a-half hour interview](http://bit.ly/2Uzp5X2%29) posted to YouTube days before announcing his candidacy on January 1, 2019, Z said he was a newcomer to politics, that he had not prepared a platform to run on, acquainted himself with international leaders or foreign policy matters or otherwise prepared himself to govern the country.
 
 [Image]
 
-Since then, z. explained away why he failed to declare multiple accounts in Cyprus and a 15-room villa in Forte dei Marmi. He has also acknowledged ties to Ukrainian businessman Ihor Kolomoisky, whom he visited more than a dozen times in Geneva and Tel Aviv during 2017 and 2018.
+Since then, Z explained away why he failed to declare multiple accounts in Cyprus and a 15-room villa in Forte dei Marmi. He has also acknowledged ties to Ukrainian businessman Ihor Kolomoisky, whom he visited more than a dozen times in Geneva and Tel Aviv during 2017 and 2018.
 
-Results from the first round of the presidential election show most Ukrainians truly support z., who won 30% of the vote in a first round of the election, compared to Poroshenko’s 16%.
+Results from the first round of the presidential election show most Ukrainians truly support Z, who won 30% of the vote in a first round of the election, compared to Poroshenko’s 16%.
 
-z. ***is*** close to his people, their expectations and aspirations. Most importantly, he understands what many people desire, so he tells them what they want to hear.
+Z ***is*** close to his people, their expectations and aspirations. Most importantly, he understands what many people desire, so he tells them what they want to hear.
 
 [Image]
-*Les Podervianskyi assesses public support for z. (10.00 http://bit.ly/2GjUSDo )*
+*Les Podervianskyi assesses public support for Z (10.00 http://bit.ly/2GjUSDo )*
 
-Ukraine’s intellectuals, on the other hand, are unenthusiastic. Many regard z. as a symbol of national degradation. Each new pink unicorn reinforces their alienation.
+Ukraine’s intellectuals, on the other hand, are unenthusiastic. Many regard Z as a symbol of national degradation. Each new pink unicorn reinforces their alienation.
 
 “Ukrainians are champions at cyclical suicide… We have shown this repeatedly throughout our history, and we might repeat the feat again,” [Les Podervianskyi](https://en.wikipedia.org/wiki/Les_Podervianskyi) said on March 30, the day before the first round of the presidential election.
 
 **Death of discourse**
 
-In theory, the conflict between the *thesis* espoused by the incumbent and *antithesis* z. represents could give rise to a *synthesis.* But the challenger, so far, refuses to debate. How z. could improve on Poroshenko’s response to Russia’s ongoing invasion of Ukraine and occupation of Crimea remains a mystery.
+In theory, the conflict between the *thesis* espoused by the incumbent and *antithesis* Z represents could give rise to a *synthesis.* But the challenger, so far, refuses to debate. How Z could improve on Poroshenko’s response to Russia’s ongoing invasion of Ukraine and occupation of Crimea remains a mystery.
 
 [Image]
-*z. does not think debate is possible (40.22 http://bit.ly/2Uzp5X2 )*
+*Z does not think debate is possible (40.22 http://bit.ly/2Uzp5X2 )*
 
-“I don’t know if dialogue with Poroshenko is possible in any debate. It will be his long monologue and my response. One thing is for sure, I won’t let him insult me,” z. said.
+“I don’t know if dialogue with Poroshenko is possible in any debate. It will be his long monologue and my response. One thing is for sure, I won’t let him insult me,” Z said.
 
-On the evening before his scheduled April 12 meeting with French President Emmanuel Macron at Élysée Palace, z. hung up on Poroshenko during a live broadcast of a popular television show. He said the next day the reason for cutting the call short was because he felt disrespected.
+On the evening before his scheduled April 12 meeting with French President Emmanuel Macron at Élysée Palace, Z hung up on Poroshenko during a live broadcast of a popular television show. He said the next day the reason for cutting the call short was because he felt disrespected.
 
 [Image]
 
 **Less than one week left**
 
-Ukraine’s Defense Ministry on April 13 [said on Facebook](https://www.facebook.com/MinistryofDefence.UA/posts/2287451344650691?__xts__%5B0%5D=68.ARDT-w7l288cnIYmrX2-bWFfG7_3L1huBTJSg567UYLb6yAhM6xWxm7yX5i44aQCIGtAVIjeC20us0vSYCIw6vjRM7JvBK8CRqdrqWUtGKAGjWlSSEjpwxHM3Fl8fyhk13lM3cIDRstsGxLzI8iTKz-oC9jHOLFiOqvGMewkFiJnm6v1CS_boa5RhlZH8WFSg5wPkhSQ-XEjyOFwBoyCSKuRo7ZkIxSf8lF_rKuo91LDtGDZqTkWExsT_bTnkY1I3g7wItYhv4R3O63UuxhPouKy6qhiYhFxdARb6FifwU4GgvUV9cIt7d83pvwChxQJmkvuMkO251tEbJG7ZFQJKA&__tn__=-R) that z. had ignored four draft notices sent to his address during Russia’s invasion of Ukraine — in April, June and August of 2014 and in May of 2015.
+Ukraine’s Defense Ministry on April 13 [said on Facebook](https://www.facebook.com/MinistryofDefence.UA/posts/2287451344650691?__xts__%5B0%5D=68.ARDT-w7l288cnIYmrX2-bWFfG7_3L1huBTJSg567UYLb6yAhM6xWxm7yX5i44aQCIGtAVIjeC20us0vSYCIw6vjRM7JvBK8CRqdrqWUtGKAGjWlSSEjpwxHM3Fl8fyhk13lM3cIDRstsGxLzI8iTKz-oC9jHOLFiOqvGMewkFiJnm6v1CS_boa5RhlZH8WFSg5wPkhSQ-XEjyOFwBoyCSKuRo7ZkIxSf8lF_rKuo91LDtGDZqTkWExsT_bTnkY1I3g7wItYhv4R3O63UuxhPouKy6qhiYhFxdARb6FifwU4GgvUV9cIt7d83pvwChxQJmkvuMkO251tEbJG7ZFQJKA&__tn__=-R) that Z had ignored four draft notices sent to his address during Russia’s invasion of Ukraine — in April, June and August of 2014 and in May of 2015.
 
-The news came as calls for z. to debate Poroshenko on April 14 in Kyiv intensified.
+The news came as calls for Z to debate Poroshenko on April 14 in Kyiv intensified.
 
 “Do not hide from voters and do not run away from the press,” Poroshenko said in a 24-second video [uploaded to YouTube](http://bit.ly/2Gm5od9). “Communication with millions of Ukrainians is more important than a weekend in Paris.…Don’t be afraid of your opponent. Don’t hang up the phone.…See you on Sunday.”
 
-z. did not appear.
+Z did not appear.
 
-Speaking the next day at a meeting of the European Business Association in Kyiv, Poroshenko said figuring out z. and his team is like “solving a complicated equation with all unknown variables.”
+Speaking the next day at a meeting of the European Business Association in Kyiv, Poroshenko said figuring out Z and his team is like “solving a complicated equation with all unknown variables.”
 
 “Their campaign is like a silent movie, where the actor is moving fast, is very active, but doesn’t say a word. It’s very difficult, even for me, a person who is very knowledgeable in economic and in political realities, to relate” he said.
 
 **Less than one week left**
 
-With days remaining before Sunday’s run-off, Kyiv-based Democratic Initiatives Foundation Director Iryna Bekeshkyna [said](https://news.liga.net/politics/news/bekeshkina-debaty-nujny-chtoby-nemnojko-vklyuchit-golovu) polls show more than 70% of Ukrainians want Poroshenko and z. to debate.
+With days remaining before Sunday’s run-off, Kyiv-based Democratic Initiatives Foundation Director Iryna Bekeshkyna [said](https://news.liga.net/politics/news/bekeshkina-debaty-nujny-chtoby-nemnojko-vklyuchit-golovu) polls show more than 70% of Ukrainians want Poroshenko and Z to debate.
 
-“Poroshenko is famous person many don’t like, z. is an unknown quantity on whom different voters can project different desires,” she said.
+“Poroshenko is famous person many don’t like, Z is an unknown quantity on whom different voters can project different desires,” she said.
 
 “There should be a debate, if only to get voters to start thinking.”
 
@@ -341,7 +341,7 @@ luckily for us, z has a great sense of humor. he also has ideas about how best t
 
 [Image]
 
-what is the difference between *бунтари* and *повстанцы*? just ask z. he will explain why *rebellion* does not mean *insurrection,* how *collaborators* are not *secessionists* and why *intervention* might mean *invasion*, but not necessarily.
+what is the difference between *бунтари* and *повстанцы*? just ask Z he will explain why *rebellion* does not mean *insurrection,* how *collaborators* are not *secessionists* and why *intervention* might mean *invasion*, but not necessarily.
 
 the most important thing is that z *knows* what he wants to say. that he’s incapable of formulating his thoughts in complete sentences is besides the point, because the de facto president has already started studying ukrainian.
 
@@ -430,15 +430,15 @@ what has 1,800 teeth and a suction cup? a new species of *[субчики](http:
 
 *субчики* is russian slang for *suspicious personalities,* in this case igor fruman and lev parnas, two american biznezmen who are working with giuliani on his ukraine project.
 
-igor, lev and rudy have for months been involved in ukraine’s domestic affairs, warning president-elect volodymyr z. (z.) on social media against associating himself with corrupt oligarchs.
+igor, lev and rudy have for months been involved in ukraine’s domestic affairs, warning president-elect volodymyr Z (Z) on social media against associating himself with corrupt oligarchs.
 
-> z. must be cleansed from the clingfishes of his past and criminal oligarchs, ihor kolomoisky and others… [from] those who will be investigated in america who interfere in our direct communication … —***rudolph giuliani in interview with inter tv, nyc, may 15, 2019***
+> Z must be cleansed from the clingfishes of his past and criminal oligarchs, ihor kolomoisky and others… [from] those who will be investigated in america who interfere in our direct communication … —***rudolph giuliani in interview with inter tv, nyc, may 15, 2019***
 
 kolomoisky on may 17 responded in a blitz interview at [catch restaurant](https://famiglia.com.ua/catch/) in downtown kyiv.
 
 > there are two con artists operating in ukraine. they are being investigated in the united states: igor fruman and lev parnas. they are making the rounds in ukraine, taking money from people, saying they are close to giuliani and can solve any problem with prosecutor general yuriy lutsenko. lutsenko probably doesn’t know about this. neither does giuliani. — ***ihor kolomoisky, kyiv***
 
-with one day remaining before z.’s inauguration as ukraine’s sixth president on may 20, giuliani [called on](http://bit.ly/2VCAlhv) his *clients* to press charges.
+with one day remaining before Z’s inauguration as ukraine’s sixth president on may 20, giuliani [called on](http://bit.ly/2VCAlhv) his *clients* to press charges.
 
 [Image]
 
