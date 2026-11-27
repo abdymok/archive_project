@@ -6,8 +6,8 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- Current file: `2023.md`.
-- Sentence-level review has progressed through the September 17, 2023 entry (around line 6,600 at this checkpoint). Continue from the next entry after `2023-09-17 · Spies r us?`. Do not restart January–August.
+- Current file: `2023.md` sentence-level pass complete through the final December 29 entry (file ends at line 10,001). The next task is integrity checking for 2023, then begin `2024.md`.
+- January–December 2023 were reviewed in sequence. Do not restart the sentence-level pass unless a specific issue is found.
 - The file contains 203 dated entries. There are 170 entries dated January–September and 33 dated October–December (83.7% / 16.3%).
 - First post-September entry: `2022-10-05 · Making dragon soup` (around line 7065 at the time of this checkpoint).
 - Sentence-level proofreading of the October–December 2022 entries is now complete. The review resumed at October 5 and continued through the December 29 entry. January–September was not repeated.
@@ -17,21 +17,20 @@ Last updated: 2026-11-27
 
 ## 2023 progress
 
-- Saved sentence-level corrections across January–September 17, 2023. Recent commits include `f3b2d364063be62a17a78e38dc7b01241f411724`, `f33cfa3c820c3894adfcd18a46d3ea8fe4875870`, `cb0ce122e509e3a5c0d3df216733d7625f3cfabc`, `b297479610a072ec247f3f8e2d8089c0782c754b`, `d98703318b6a9f13550a59fd591dc9824192686e`, `3520c69c6aba64bb20fe2010465d6ca3f7a977bd`, `4405158d4cc0a8717a64840d34cf541c567157c5`, `978b48de9141b43eea51a5ea7db9cf76076b19d9`, `4835020627fe1b7d2aa1152d5d9947e14c52fc69`, and `a9fc4884730f8d633a5a9a37da058ec2f16c3c6b`.
-- Continue from the next entry after September 17. Preserve voice, do not silently change facts or quotations, and keep flagging uncertain source issues.
-- 2023 link/image integrity checks remain outstanding. The sentence-level pass is not yet complete.
+- Sentence-level proofreading is complete for all of `2023.md`, from the January entries through December 29. The file ends at line 10,001.
+- Corrections were saved incrementally in multiple commits. Recent commits include `c4b8162bb30bff71b09a3a754cf0ee0b177deb60`, `d2c613e6058cbf8bca5a8d32608f1e9a65bde0d1`, `c768c8e459319bbaff3101ce381613fd2c12233e`, `e7db657c9e7d9bf0344ab4e92d34afa3bc9de0a8`, `9b44cc30416635b88d160161ca180e21686cf4fb`, `4acadc5b7e02930dbbaec8ea55ab295e4b9e4ede`, `2ba2e501b72752ed8df77c36652bca6ab985dfe6`, and `5a83655714e43ba25f8ae973cc9489b0f5f120fb`.
+- Preserve voice, do not silently change facts or quotations, and keep flagging uncertain source issues. The sentence-level pass is complete; the separate link/image integrity pass remains outstanding.
 
 ## Next file
 
-- Finish `2023.md`, then proceed to 2024–2026 as needed. Previously completed structural/count and Z-substitution work is inherited and must not be repeated.
+- Begin the sentence-level pass of `2024.md` at the first entry. Then proceed to `2025.md` and `2026.md`. Previously completed structural/count and Z-substitution work is inherited and must not be repeated.
 
 ## Remaining work
 
-1. Continue sentence-level proofreading of the remaining 2022 entries, starting at October 5. Do not restart January–September unless a specific issue is found.
-2. Continue through December 2022, recording any uncertain factual or substantive issues rather than silently rewriting them.
-3. Proceed to 2023 and then the remaining years that still need detailed review. Do not assume earlier structural checks need repeating.
-4. Check image and link integrity across the archive.
-5. Produce a final report with files/sections completed, saved commits, and unresolved items.
+1. Complete link and image integrity checks for `2022.md` and `2023.md`, then continue those checks across the remaining files.
+2. Sentence-level proofread `2024.md`, `2025.md` and `2026.md` without repeating completed years.
+3. Record uncertain factual, source and attribution issues rather than silently rewriting them.
+4. Produce a final report with files/sections completed, saved commits, link/image results, and unresolved items.
 
 ## Editing rules
 
