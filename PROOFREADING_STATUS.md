@@ -10,9 +10,10 @@ Last updated: 2026-11-27
 - Resume point: October 2022. The previous detailed pass was estimated by the user to be about 85% complete, through September.
 - The file contains 203 dated entries. There are 170 entries dated January–September and 33 dated October–December (83.7% / 16.3%).
 - First post-September entry: `2022-10-05 · Making dragon soup` (around line 7065 at the time of this checkpoint).
-- The October 5, October 8, October 11 and October 12 sections were opened for review. This is not a claim that those full entries have been completely proofread.
-- One correction was saved on 2026-11-27: `Endgadget` → `Engadget` (one occurrence).
-- Commit: `647e4d5f09ecf33d504989c7311f4e2331ba5541`
+- Sentence-level proofreading of the October–December 2022 entries is now complete. The review resumed at October 5 and continued through the December 29 entry. January–September was not repeated.
+- Saved corrections in this resumed section include `Endgadget` → `Engadget`, `Fredrick W. Kagan` → `Frederick W. Kagan`, `Propects` → `Prospects` in visible link text, grammar/parallelism fixes, and caption/punctuation cleanup.
+- Relevant commits: `647e4d5f09ecf33d504989c7311f4e2331ba5541`, `7c75b959ea6a8323a017881037e438b9a8d950ea`, `5d9feeb1dcacfaa26463621656b1fc1bc969277c`.
+- Link/image integrity checks for 2022 are still outstanding. Flagged for verification: a bracketed `about peace talks` phrase with no destination, and a December 14 Washington Post attribution whose linked URL appears to point to CNN.
 
 ## Remaining work
 
