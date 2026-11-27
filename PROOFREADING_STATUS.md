@@ -6,8 +6,8 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- Current file: `2023.md` (2022 sentence-level pass complete; moving forward without repeating earlier work).
-- 2022 resumed at October 5, following the user's handover estimate of about 85% complete through September.
+- Current file: `2023.md`.
+- Sentence-level review has progressed through the September 17, 2023 entry (around line 6,600 at this checkpoint). Continue from the next entry after `2023-09-17 · Spies r us?`. Do not restart January–August.
 - The file contains 203 dated entries. There are 170 entries dated January–September and 33 dated October–December (83.7% / 16.3%).
 - First post-September entry: `2022-10-05 · Making dragon soup` (around line 7065 at the time of this checkpoint).
 - Sentence-level proofreading of the October–December 2022 entries is now complete. The review resumed at October 5 and continued through the December 29 entry. January–September was not repeated.
@@ -15,9 +15,15 @@ Last updated: 2026-11-27
 - Relevant commits: `647e4d5f09ecf33d504989c7311f4e2331ba5541`, `7c75b959ea6a8323a017881037e438b9a8d950ea`, `5d9feeb1dcacfaa26463621656b1fc1bc969277c`.
 - 2022 integrity inventory: 1,904 external Markdown links and 632 image embeds. A local scan found 12 distinct footnote-style anchor targets (`footnote-1` through `footnote-6` and `footnote-anchor-1` through `footnote-anchor-6`) but no explicit matching IDs in the raw Markdown; these need rendered-page/format-aware verification before calling them broken. The December 14 Washington Post attribution points to a CNN URL and is a confirmed source-link mismatch to resolve. A sample Ukrinform link opens successfully. The sampled S3 image and CNN URL could not be retrieved by the web viewer, which is inconclusive and not evidence that either URL is dead.
 
+## 2023 progress
+
+- Saved sentence-level corrections across January–September 17, 2023. Recent commits include `f3b2d364063be62a17a78e38dc7b01241f411724`, `f33cfa3c820c3894adfcd18a46d3ea8fe4875870`, `cb0ce122e509e3a5c0d3df216733d7625f3cfabc`, `b297479610a072ec247f3f8e2d8089c0782c754b`, `d98703318b6a9f13550a59fd591dc9824192686e`, `3520c69c6aba64bb20fe2010465d6ca3f7a977bd`, `4405158d4cc0a8717a64840d34cf541c567157c5`, `978b48de9141b43eea51a5ea7db9cf76076b19d9`, `4835020627fe1b7d2aa1152d5d9947e14c52fc69`, and `a9fc4884730f8d633a5a9a37da058ec2f16c3c6b`.
+- Continue from the next entry after September 17. Preserve voice, do not silently change facts or quotations, and keep flagging uncertain source issues.
+- 2023 link/image integrity checks remain outstanding. The sentence-level pass is not yet complete.
+
 ## Next file
 
-- Begin the detailed sentence-level pass of `2023.md` at its first entry. The prior structural/count and Z-substitution work is inherited and must not be repeated.
+- Finish `2023.md`, then proceed to 2024–2026 as needed. Previously completed structural/count and Z-substitution work is inherited and must not be repeated.
 
 ## Remaining work
 
