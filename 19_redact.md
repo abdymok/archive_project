@@ -185,9 +185,9 @@ lesya hasn’t made the archive public yet, so we have to rely on her and bihus.
 
 *Date: 2019-03-31 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*poroshenko, Z, tymoshenko: 25%, 23%, 17%, respectively.*
+*poroshenko, z, tymoshenko: 25%, 23%, 17%, respectively.*
 
-Z, poroshenko, tymoshenko: 30%, 20%, 10%, respectively.
+z, poroshenko, tymoshenko: 30%, 20%, 10%, respectively.
 
 the exercise will have been a success if the outcome is reversed.
 
@@ -205,7 +205,7 @@ results of ukraine’s six previous presidential elections:
 
 2014 — **poroshenko** (may 2014, first round, def **tymoshenko**)
 
-2019 — **z.** vs **poroshenko** (april 2019, second round)
+2019 — **z** vs **poroshenko** (april 2019, second round)
 
 ---
 
@@ -259,7 +259,7 @@ z comes across as a likeable guy with many interesting stories. he tells the pyr
 
 At least no one will be able to argue that Ukrainians knew little about the person they gambled on to become the country’s sixth president.
 
-Volodymyr Z — who calls himself **z.** —since late February has been the odds-on betting favorite to win the second round of Ukraine’s presidential election on April 21.
+Volodymyr Z — who calls himself **Z** —since late February has been the odds-on betting favorite to win the second round of Ukraine’s presidential election on April 21.
 
 The three-month campaign of the 41-year old from Kryviy Rih has featured upbeat video clips and choreographed remarks, almost exclusively from television screens and smartphones. His social media messages on [Facebook](https://www.facebook.com/zelenskiy95?epa=SEARCH_BOX) and [Instagram](https://www.instagram.com/zelenskiy_official/) range from [pink unicorns](https://www.facebook.com/ze2019official/videos/1504131519724418/) to [bare-breasted calisthenics](https://www.instagram.com/p/Bp6bCrNlxHJ/). They have resonated with ordinary Ukrainians much more deeply than sensible arguments made seriously by his opponent, incumbent President Petro Poroshenko.
 
@@ -317,7 +317,7 @@ With days remaining before Sunday’s run-off, Kyiv-based Democratic Initiatives
 
 It’s not rare for incompetent people to think they are amazing, or for skilled people to underestimate their abilities. It is, however, uncommon to find someone who personifies both the Dunning-Kruger effect *and* the Imposter Syndrome at the same time.
 
-So far, that’s z..
+So far, that’s Z.
 
 ---
 
@@ -341,7 +341,7 @@ luckily for us, z has a great sense of humor. he also has ideas about how best t
 
 [Image]
 
-what is the difference between *бунтари* and *повстанцы*? just ask Z he will explain why *rebellion* does not mean *insurrection,* how *collaborators* are not *secessionists* and why *intervention* might mean *invasion*, but not necessarily.
+what is the difference between *бунтари* and *повстанцы*? just ask z. he will explain why *rebellion* does not mean *insurrection,* how *collaborators* are not *secessionists* and why *intervention* might mean *invasion*, but not necessarily.
 
 the most important thing is that z *knows* what he wants to say. that he’s incapable of formulating his thoughts in complete sentences is besides the point, because the de facto president has already started studying ukrainian.
 
@@ -430,15 +430,15 @@ what has 1,800 teeth and a suction cup? a new species of *[субчики](http:
 
 *субчики* is russian slang for *suspicious personalities,* in this case igor fruman and lev parnas, two american biznezmen who are working with giuliani on his ukraine project.
 
-igor, lev and rudy have for months been involved in ukraine’s domestic affairs, warning president-elect volodymyr Z (Z) on social media against associating himself with corrupt oligarchs.
+igor, lev and rudy have for months been involved in ukraine’s domestic affairs, warning president-elect volodymyr z (z) on social media against associating himself with corrupt oligarchs.
 
-> Z must be cleansed from the clingfishes of his past and criminal oligarchs, ihor kolomoisky and others… [from] those who will be investigated in america who interfere in our direct communication … —***rudolph giuliani in interview with inter tv, nyc, may 15, 2019***
+> z must be cleansed from the clingfishes of his past and criminal oligarchs, ihor kolomoisky and others… [from] those who will be investigated in america who interfere in our direct communication … —***rudolph giuliani in interview with inter tv, nyc, may 15, 2019***
 
 kolomoisky on may 17 responded in a blitz interview at [catch restaurant](https://famiglia.com.ua/catch/) in downtown kyiv.
 
 > there are two con artists operating in ukraine. they are being investigated in the united states: igor fruman and lev parnas. they are making the rounds in ukraine, taking money from people, saying they are close to giuliani and can solve any problem with prosecutor general yuriy lutsenko. lutsenko probably doesn’t know about this. neither does giuliani. — ***ihor kolomoisky, kyiv***
 
-with one day remaining before Z’s inauguration as ukraine’s sixth president on may 20, giuliani [called on](http://bit.ly/2VCAlhv) his *clients* to press charges.
+with one day remaining before z’s inauguration as ukraine’s sixth president on may 20, giuliani [called on](http://bit.ly/2VCAlhv) his *clients* to press charges.
 
 [Image]
 
