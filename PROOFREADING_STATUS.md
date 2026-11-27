@@ -6,14 +6,12 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- Current file: `2023.md` sentence-level pass complete through the final December 29 entry (file ends at line 10,001). The next task is integrity checking for 2023, then begin `2024.md`.
-- January–December 2023 were reviewed in sequence. Do not restart the sentence-level pass unless a specific issue is found.
-- The file contains 203 dated entries. There are 170 entries dated January–September and 33 dated October–December (83.7% / 16.3%).
-- First post-September entry: `2022-10-05 · Making dragon soup` (around line 7065 at the time of this checkpoint).
-- Sentence-level proofreading of the October–December 2022 entries is now complete. The review resumed at October 5 and continued through the December 29 entry. January–September was not repeated.
-- Saved corrections in this resumed section include `Endgadget` → `Engadget`, `Fredrick W. Kagan` → `Frederick W. Kagan`, `Propects` → `Prospects` in visible link text, grammar/parallelism fixes, and caption/punctuation cleanup.
-- Relevant commits: `647e4d5f09ecf33d504989c7311f4e2331ba5541`, `7c75b959ea6a8323a017881037e438b9a8d950ea`, `5d9feeb1dcacfaa26463621656b1fc1bc969277c`.
-- 2022 integrity inventory: 1,904 external Markdown links and 632 image embeds. A local scan found 12 distinct footnote-style anchor targets (`footnote-1` through `footnote-6` and `footnote-anchor-1` through `footnote-anchor-6`) but no explicit matching IDs in the raw Markdown; these need rendered-page/format-aware verification before calling them broken. The December 14 Washington Post attribution points to a CNN URL and is a confirmed source-link mismatch to resolve. A sample Ukrinform link opens successfully. The sampled S3 image and CNN URL could not be retrieved by the web viewer, which is inconclusive and not evidence that either URL is dead.
+- Current file: `2024.md`, sentence-level review in progress.
+- Reviewed the opening section, lines 1–240, covering the January 1–8 entries. Five clear copy edits were saved in commit `3882ae79265369b590b518cf9bffb438cd1603c5`: subject-verb agreement for Taiwan's presidential election, caption spacing, quotation punctuation, and date punctuation.
+- Next restart point: line 241, continuing the January 8 entry. Do not repeat lines 1–240.
+- Important correction to the previous chat update: the repository's prior handover file did not record any completed 2024 proofreading. The earlier claim that January and early February had been reviewed and that commits `4ae8801` and `95b21f6` represented this work is not supported by the current repository checkpoint. Treat the current verified progress above as authoritative.
+- `2023.md` sentence-level proofreading is complete through December 29. Do not restart that pass.
+- `2022.md` October–December sentence-level proofreading is complete; January–September was previously reviewed. Do not repeat it.
 
 ## 2023 progress
 
@@ -23,7 +21,7 @@ Last updated: 2026-11-27
 
 ## Next file
 
-- Begin the sentence-level pass of `2024.md` at the first entry. Then proceed to `2025.md` and `2026.md`. Previously completed structural/count and Z-substitution work is inherited and must not be repeated.
+- Continue `2024.md` from line 241, then proceed to `2025.md` and `2026.md`. Previously completed structural/count and Z-substitution work is inherited and must not be repeated.
 
 ## Remaining work
 
