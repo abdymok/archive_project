@@ -3953,7 +3953,7 @@ Somewhere in the gaping void that is understanding continued liberation of Russi
 
 As we wrote on Day 10, it is a difficult place name to pronounce, especially if you add the second ***zh***. This makes it notoriously inaccessible to monolingual laypeople who rely on low-frequency off camera stand-up comedy, e.g.[1](#footnote-1)
 
-> Conserve letters: **Zaporizhia**. There’s no good reason for double up “***zh***s.” Don’t repeat “***y***s” in surnames, except Zelensk***yy*** — not Zelensk***iy***, Zelensk***yi***. Maybe just write z., or Z. The same goes for “***i***s,” as in *[Iul](https://abdymok.substack.com/p/weightless-self-promotion?s=w)**[iia](https://abdymok.substack.com/p/weightless-self-promotion?s=w)** [[Mendel]](https://abdymok.substack.com/p/weightless-self-promotion?s=w)*. Her name is painful to look at, much less pronounce correctly, or even think about otherwise.
+> Conserve letters: **Zaporizhia**. There’s no good reason for double up “***zh***s.” Don’t repeat “***y***s” in surnames, except Zelensk***yy*** — not Zelensk***iy***, Zelensk***yi***. Maybe just write Z, or Z. The same goes for “***i***s,” as in *[Iul](https://abdymok.substack.com/p/weightless-self-promotion?s=w)**[iia](https://abdymok.substack.com/p/weightless-self-promotion?s=w)** [[Mendel]](https://abdymok.substack.com/p/weightless-self-promotion?s=w)*. Her name is painful to look at, much less pronounce correctly, or even think about otherwise.
 
 Lag times for photos/videos made by soldiers actually doing the fighting (**which is always best, i.e. most informative**) along the 600-km long front line will get shorter over the next couple of days and enhance our military situational awareness (which we have entrusted temporarily to [Stefan](https://stefankorshak.substack.com/?utm_source=substack&utm_medium=web&utm_campaign=substack_profile) and an army of milbloggers).
 
@@ -9687,7 +9687,7 @@ We all remember “[Operation Y](https://abdymok.substack.com/p/operation-y-cont
 
 *Date: 2023-12-20 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z.'s word salad*
+*Z's word salad*
 
 [Image]
 
