@@ -21,7 +21,7 @@ the quality of the unedited [90-minute-long audio recording](https://drive.googl
 
 smolii, prime minister oleksiy honcharuk, national bank of ukraine deputy chairwoman kateryna rozhkova, nbu board member dmytro solohub, finance minister oksana markarova and other officials, including minister of economic development, trade and agriculture tymofiy mylovanov are the main speakers in the brainstorming breakfast.
 
-all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr Z why low inflation and a strong hryvnia is the correct policy for the economy.
+all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr z why low inflation and a strong hryvnia is the correct policy for the economy.
 
 three unflattering and misleading excerpts of the discussion were first posted on january 15 to the “how to deceive the president” youtube account (*какобманутьпрезидента*). honcharuk resigned two days later.
 
@@ -35,7 +35,7 @@ industrial production in ukraine in november 2019 decreased by 7.5% compared to 
 
 “the prime minister tendered his resignation letter to the president. it would have been easier for him to just drop it off at the central bank, which is closer to the president’s office,” skarshevsky said.
 
-neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between Z and honcharuk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
+neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between z and honcharuk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
 
 the president instead asked the prime minister to resolve the following problems by february 4, 2020: 1) remuneration for ministers and top government officials, 2) bonus payments to naftogaz staff for winning the $2.9 billion stockholm arbitration ruling against gazprom, 3) removal of the least competent cabinet members, optimization of ministries and 4) improvement of cooperation between the government and parliament committees.
 
@@ -59,7 +59,7 @@ once senators have exhausted all of their time for questions in the impeachment 
 
 depending on what has occurred up to that point, the debate could begin on thursday, january 30. that’s when u.s. secretary of state michael pompeo — **a heat-seeking missile for trump’s ass** — is scheduled to visit kyiv.
 
-trump and his personal lawyer rudy (rudolph) giuliani are accused of managing a months-long campaign to coerce ukrainian president volodymyr Z to announce bogus investigations to increase trump’s chances of being re-elected in 2020. pompeo, along with other top officials in the trump administration, was kept apprised of, if not directly involved in, the shenanigans. pompeo hasn’t admitted it yet and has so far failed to turn over documents to congress.
+trump and his personal lawyer rudy (rudolph) giuliani are accused of managing a months-long campaign to coerce ukrainian president volodymyr z to announce bogus investigations to increase trump’s chances of being re-elected in 2020. pompeo, along with other top officials in the trump administration, was kept apprised of, if not directly involved in, the shenanigans. pompeo hasn’t admitted it yet and has so far failed to turn over documents to congress.
 
 pompeo on january 22 [said](https://www.bloombergquint.com/politics/pompeo-says-u-s-remains-committed-to-ending-ukraine-corruption) the united states is committed to supporting ukraine and stamping out corruption in the country. he denied that giuliani oversaw a shadow foreign policy in ukraine. he lied.
 
@@ -179,11 +179,11 @@ Unfortunately, the Justice Ministry will have to answer the following unpleasant
 
 *Normal evidence or trumped up charges?*
 
-This much is clear. When z!team promised one year ago to punish former top government officials, if elected, they meant Petro Poroshenko.
+This much is clear. When Z!Team promised one year ago to punish former top government officials, if elected, they meant Petro Poroshenko.
 
 [Image]
 
-"**SPRING WILL COME AGAIN AND WE WILL THROW PEOPLE IN JAIL**" Those were the words on z!team's billboards throughout Ukraine more than a year ago. Oleksandr Kabanov, the author of the slogan, a screenwriter from Z's Kvartal 95 production studio, is today a member of parliament. So far, no top former government officials have been convicted and "thrown into jail." That could change.
+"**SPRING WILL COME AGAIN AND WE WILL THROW PEOPLE IN JAIL**" Those were the words on Z!Team's billboards throughout Ukraine more than a year ago. Oleksandr Kabanov, the author of the slogan, a screenwriter from Z's Kvartal 95 production studio, is today a member of parliament. So far, no top former government officials have been convicted and "thrown into jail." That could change.
 
 [Image]
 
@@ -217,7 +217,7 @@ Ryaboshapka transferred Poroshenko's case to NABU before being fired, voiding th
 
 NABU's press service, meanwhile, said they did not have information about whether sub-jurisdiction in this case had been determined for them, and, if so, whether the case materials were physically transferred to NABU offices.
 
-**What does z!team say?**
+**What does Z!Team say?**
 
 MP Kachura said SBI detectives compiled a "normal evidentiary base" it case against Poroshenko. Kachura said he is certain the case will not fall apart in court.
 
@@ -245,7 +245,7 @@ Another anonymous MP from Z's party said acting SBI Director Iryna Venediktova h
 
 *Date: 2020-03-15 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z!team harasses Ukraine's fifth president*
+*Z!Team harasses Ukraine's fifth president*
 
 [Image]
 
@@ -255,7 +255,7 @@ Investigators from the State Bureau of Investigations suspect him of "illegally"
 
 **Article 62 of Ukraine’s Constitution reads:** *A person is presumed innocent of committing a crime and shall not be subjected to criminal punishment until his or her guilt is proved through legal procedure and established by a court verdict of guilty. No one is obliged to prove his or her innocence of committing a crime. An accusation shall not be based on illegally obtained evidence as well as on assumptions. All doubts in regard to the proof of guilt of a person are interpreted in his or her favour. In the event that a court verdict is revoked as unjust, the state compensates the material and moral damages inflicted by the groundless conviction.*
 
-In most Western coverage Ukraine’s ultra-competitive domestic politics is rarely examined in detail. That’s a shame, because, so far, the root-and-branch “reform” of the justice system countenanced under Volodymyr Z has been the aviation equivalent of looking for the black box after a plane crash, culminating with the ugly sacking of Prosecutor General Ruslan Ryaboshapka on March 5 for ostensibly refusing to sign on to z!team’s Poroshenko persecution campaign. The country’s return to “selective justice” amid coronavirus confusion could be a harbinger not just for Ukrainians, but for Europe as a whole.
+In most Western coverage Ukraine’s ultra-competitive domestic politics is rarely examined in detail. That’s a shame, because, so far, the root-and-branch “reform” of the justice system countenanced under Volodymyr Z has been the aviation equivalent of looking for the black box after a plane crash, culminating with the ugly sacking of Prosecutor General Ruslan Ryaboshapka on March 5 for ostensibly refusing to sign on to Z!Team’s Poroshenko persecution campaign. The country’s return to “selective justice” amid coronavirus confusion could be a harbinger not just for Ukrainians, but for Europe as a whole.
 
 ---
 
@@ -685,7 +685,7 @@ Socor’s analysis was not lost on Oleg Sukhov in this week’s edition of the K
 
 Melinda Harding, the Atlantic Council’s deputy director of Eurasia Center and a senior fellow at the Foreign Policy Research Institute, [sounded the alarm](https://youtu.be/nQZGzOktS7c) a day earlier in an interview with Voice of America.
 
-For z!team and Kremlin leaders it’s too dangerous to have someone like Poroshenko running around, so he needs to be damaged.  This practice in Byzantium, where ancient Kyiv got its religion and founding mythologies, was called [political mutilation](https://en.wikipedia.org/wiki/Political_mutilation_in_Byzantine_culture), the practice of mangling one’s rivals by disfeaturing them: slicing off noses, amputating limbs and poking out eyes.
+For Z!Team and Kremlin leaders it’s too dangerous to have someone like Poroshenko running around, so he needs to be damaged.  This practice in Byzantium, where ancient Kyiv got its religion and founding mythologies, was called [political mutilation](https://en.wikipedia.org/wiki/Political_mutilation_in_Byzantine_culture), the practice of mangling one’s rivals by disfeaturing them: slicing off noses, amputating limbs and poking out eyes.
 
 Looking on the bright side, some Kyiv insiders offer a less gruesome explanation, saying it’s entirely possible Z himself is oblivious to the efforts of his underlings to harass Poroshenko.
 
@@ -763,7 +763,7 @@ There will be no census this year. And there will be no census next year, irresp
 
 *Date: 2020-03-23 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*COVID-19 under z.*
+*COVID-19 under Z*
 
 [Image]
 
@@ -829,7 +829,7 @@ Yemets knows Ukraine’s health care system stinks. He said in this interview th
 
 *Date: 2020-03-25 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z!team bungles pandemic response, gets sick*
+*Z!Team bungles pandemic response, gets sick*
 
 [Image]
 
@@ -1125,7 +1125,7 @@ Of the new patients, 13 were hospitalized and the rest at home in self-isolation
 
 The Kyiv City Laboratory Center of the Ministry of Health of Ukraine said new COVID-19 cases include 17 men - from 16 to 70 years old and 11 women - from 17 to 69 years old.
 
-As of 10:00 on April 3, there were 942 laboratory-confirmed cases of COVID-19 in Ukraine. There are probably exponentially more cases, but we don’t know because z!team was slow to start testing.
+As of 10:00 on April 3, there were 942 laboratory-confirmed cases of COVID-19 in Ukraine. There are probably exponentially more cases, but we don’t know because Z!Team was slow to start testing.
 
 *(to be continued)*
 
@@ -1219,7 +1219,7 @@ Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postavi
 
 [Image]
 
-(Everyone knew Iryna was a hack months before she was promoted to become Ukraine’s top cop. Her predecessor Ruslan Ryaboshapka spilled the beans in a [rant](https://www.pravda.com.ua/columns/2020/04/23/7249045/) appearing on April 22 in the Kyiv-based Ukrainska Pravda ezine, and UA:PBC/RFE/RL’s Schemes: Corruption in Detail followed up a day later with a 20-minute video [reportage](https://www.youtube.com/watch?time_continue=1&v=FUgW8tUGklI&feature=emb_logo) revealing additional improprieties. All foreign assistance to z!team’s regime should be suspended until the country’s law-enforcement debacle is cleared up.)
+(Everyone knew Iryna was a hack months before she was promoted to become Ukraine’s top cop. Her predecessor Ruslan Ryaboshapka spilled the beans in a [rant](https://www.pravda.com.ua/columns/2020/04/23/7249045/) appearing on April 22 in the Kyiv-based Ukrainska Pravda ezine, and UA:PBC/RFE/RL’s Schemes: Corruption in Detail followed up a day later with a 20-minute video [reportage](https://www.youtube.com/watch?time_continue=1&v=FUgW8tUGklI&feature=emb_logo) revealing additional improprieties. All foreign assistance to Z!Team’s regime should be suspended until the country’s law-enforcement debacle is cleared up.)
 
 Ukraine’s new Prosecutor General Iryna Venedyktova on April 6 introduced into the unified register of pretrial investigations a notice about possible illegal actions of former President Petro Poroshenko.
 
@@ -1594,7 +1594,7 @@ The result isn't unlike a horrible accident, except it’s been caused by an une
 
 [Image]
 
-Today, as the number of confirmed cases is increasing amid attempts by z!team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths Ukraine’s president has already failed to prevent.
+Today, as the number of confirmed cases is increasing amid attempts by Z!Team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths Ukraine’s president has already failed to prevent.
 
 Recall what Z [said](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavdan-kabinetu-ministriv-z-me-59533?fbclid=IwAR0b_JJ8MvMwFhAxs3H5IMbzQYJ4TXvrTrLkK7CYG_e0R_wip2kvdrzzdzs) on January 31 about the pandemic.
 
@@ -1744,7 +1744,7 @@ It’s day whatever of Ukraine’s COVID-19 disaster and the health minister [wa
 
 The changes floated by Maksym Stepanov appear especially irrelevant to today’s problems.  Maybe he should concentrate first on preventing unnecessary deaths during the epidemic? How about [preventing doctors from getting sick](https://nv.ua/ukraine/events/koronavirus-v-ukraine-stremitelno-rastet-chislo-zarazhennyh-medikov-novosti-ukrainy-50086974.html)?
 
-While the number of confirmed cases in recent days has plateaued amid attempts by z!team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths the country’s leaders have already failed to prevent.
+While the number of confirmed cases in recent days has plateaued amid attempts by Z!Team to re-open the country for business, we can’t pay too much attention to the horribleness of the grisly deaths the country’s leaders have already failed to prevent.
 
 President Volodymyr Z announced early this year that he had the situation under control.
 
@@ -1931,13 +1931,13 @@ President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhavi
 
 [Image]
 
-z!team did nothing to prepare for the pandemic in February and March.
+Z!Team did nothing to prepare for the pandemic in February and March.
 
 There was no individual-level containment, which would have had minimal effect on the economy. Instead, Illia Yemets, a corrupt hack from the era of disgraced former President Viktor Yanukovych, was installed as Health Minister. He said the country’s limited medical resources shouldn’t be wasted on people over the age of 65.
 
 Yemets was sacked after members of Ukraine’s jet set brought the virus back to Ukraine from European ski resorts. Germy priests co-mingled with hundreds of thousands of returning migrant workers and exacerbated the situation. All regions have since seen a steady increase in cases.
 
-The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. z!team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of harm reduction, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
+The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. Z!Team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of harm reduction, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
 
 ---
 
@@ -1945,7 +1945,7 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 *Date: 2020-05-15 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*Ukraine's scream team takes aim at z.*
+*Ukraine's scream team takes aim at Z*
 
 [Image]
 
@@ -1988,7 +1988,7 @@ Karatnycky said in his opening statement that it’s difficult to assess what Z 
 
 Anders concurred, noting the absence of a government program.
 
-> “A serious concern is that there is no government program. We thought there was sort of a government program, until he [z.] changed the government on March 4, and worse, when he sacked the Prosecutor General [Ruslan Ryaboshapka] on March 5,” Aslund said.
+> “A serious concern is that there is no government program. We thought there was sort of a government program, until he [Z] changed the government on March 4, and worse, when he sacked the Prosecutor General [Ruslan Ryaboshapka] on March 5,” Aslund said.
 
 Asked what government’s biggest achievement and worst misstep was, Dr. Mylovanov said land reform.
 
@@ -2257,13 +2257,13 @@ President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhav
 
 [Image]
 
-z!team did nothing to prepare for the pandemic in February and March.
+Z!Team did nothing to prepare for the pandemic in February and March.
 
 There was no individual-level containment, which would have had minimal effect on the economy. Instead, Illia Yemets, a corrupt hack from the era of disgraced former President Viktor Yanukovych, was installed as Health Minister. He said the country’s limited medical resources shouldn’t be wasted on people over the age of 65.
 
 Yemets was sacked after members of Ukraine’s jet set brought the virus back to Ukraine from European ski resorts. Germy priests co-mingled with hundreds of thousands of returning migrant workers and exacerbated the situation. All regions have since seen a steady increase in cases.
 
-The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. z!team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
+The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. Z!Team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
 
 (*to be continued*)
 
@@ -2285,7 +2285,7 @@ That was what Ilya Novikov, the lawyer for former President Petro Poroshenko, sa
 
 > "A criminal case into the so-called 'Biden's recordings' was opened early this morning …which itself in cases relating to the events happened four years ago testifies some particular interest of the leadership of the Office of Prosecutor General towards this issue," Novikov said at a press conference at [Interfax-Ukraine](https://en.interfax.com.ua/news/press-conference/663639.html).
 
-According to Novikov, there is information, which will be verified and specified, that the case was initiated following a conversation between Venediktova and z..
+According to Novikov, there is information, which will be verified and specified, that the case was initiated following a conversation between Venediktova and Z.
 
 The lawyer said Z demonstrated his personal interest in the given issue by statements he made at the press conference on May 20 marking his first year as president.
 
@@ -2721,7 +2721,7 @@ It’s day whatever of Ukraine’s Covid-19 disaster and the situation is bleak.
 
 Attempts to mitigate the spread of the virus have failed miserably. Commuters during rush hour pack themselves like sardines into poorly ventilated mini-buses after waiting, coughing and spitting on long lines patrolled by 20-something-year old policemen.
 
-Ukraine has reached the maximum number of new infections per day, on the one hand, and officials have started removing quarantine restrictions, on the other. This brilliant strategy has been approved by the nation’s supreme ruler z..
+Ukraine has reached the maximum number of new infections per day, on the one hand, and officials have started removing quarantine restrictions, on the other. This brilliant strategy has been approved by the nation’s supreme ruler Z.
 
 [Image]
 
@@ -2737,7 +2737,7 @@ The result isn't unlike a horrible accident, except it’s been caused by an une
 
 *who torpedoed ukraine's previous government?*
 
-***i am not a fan of former prime minister oleksiy honcharuk or the government he headed under supreme ruler z.. but i remain interested in why and how he was sacked and who leaked the 90-minute audio recording, which foreign journalists either did not listen to or did not understand. oleksiy at that the start of this chit chat provides some clues, leading me to re-post operation y with this forward and above link. enjoy! (original [here](https://medium.com/@abdymok/operation-y-b2d557374ca7))***
+***i am not a fan of former prime minister oleksiy honcharuk or the government he headed under supreme ruler z. but i remain interested in why and how he was sacked and who leaked the 90-minute audio recording, which foreign journalists either did not listen to or did not understand. oleksiy at that the start of this chit chat provides some clues, leading me to re-post operation y with this forward and above link. enjoy! (original [here](https://medium.com/@abdymok/operation-y-b2d557374ca7))***
 
 [Image]
 
@@ -2751,7 +2751,7 @@ the quality of the unedited [90-minute-long audio recording](https://drive.goog
 
 smolii, prime minister oleksiy honcharuk, national bank of ukraine deputy chairwoman kateryna rozhkova, nbu board member dmytro solohub, finance minister oksana markarova and other officials, including minister of economic development, trade and agriculture tymofiy mylovanov are the main speakers in the brainstorming breakfast.
 
-all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr Z why low inflation and a strong hryvnia is the correct policy for the economy.
+all participants appear to understand what they are saying. they struggle politely, always audibly and at times incoherently, to agree on how best to explain to president volodymyr z why low inflation and a strong hryvnia is the correct policy for the economy.
 
 three unflattering and misleading excerpts of the discussion were first posted on january 15 to the “how to deceive the president” youtube account (*какобманутьпрезидента*). honcharuk resigned two days later.
 
@@ -2765,7 +2765,7 @@ industrial production in ukraine in november 2019 decreased by 7.5% compared to 
 
 “the prime minister tendered his resignation letter to the president. it would have been easier for him to just drop it off at the central bank, which is closer to the president’s office,” skarshevsky said.
 
-neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between Z and honchaurk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
+neither ukraine’s industrial slump nor macroeconomic policy were on the agenda during the 10-minute meeting between z and honchaurk on january 17. at the start of their one-on-one meeting posted to facebook, the president said the scandal had created “a very unpleasant situation.” he then added that honcharuk and his team would be given another chance.
 
 the president instead asked the prime minister to resolve the following problems by february 4, 2020: 1) remuneration for ministers and top government officials, 2) bonus payments to naftogaz staff for winning the $2.9 billion stockholm arbitration ruling against gazprom, 3) removal of the least competent cabinet members, optimization of ministries and 4) improvement of cooperation between the government and parliament committees.
 
@@ -2779,9 +2779,9 @@ ukraine’s top economists agree prudent macroeconomic policies under ukraine’
 
 it is ukraine’s **current** and **future** macroeconomic policy, based on the continued revaluation of the hryvnia under the pretext of a poorly understood strategy of so-called “inflation targeting” by the central bank, that worries mykhailo kukhar, founder of ukraine economic outlook (ueo), a kyiv-based non-profit that analyzes macroeconomic policy.
 
-“the current approach is the wrong approach, because it will further suppress exports, leading to a further decline in production, layoffs, a decrease in household incomes and purchasing power, under-fulfillment of the budget, increased public discontent, outflow of bank deposits, recession, economic crisis and, ultimately, the decline of Z’s popularity,” he said.
+“the current approach is the wrong approach, because it will further suppress exports, leading to a further decline in production, layoffs, a decrease in household incomes and purchasing power, under-fulfillment of the budget, increased public discontent, outflow of bank deposits, recession, economic crisis and, ultimately, the decline of z’s popularity,” he said.
 
-this is exactly the scenario participants in the recordings were brainstorming about pushing Z to support, kukhar added.
+this is exactly the scenario participants in the recordings were brainstorming about pushing z to support, kukhar added.
 
 [Image][Image]
 
@@ -3060,7 +3060,7 @@ All participants appeared to understand what they were saying. They struggled po
 
 Three unflattering and misleading excerpts of the discussion were first posted on January 15 to the “How to Deceive the President” YouTube account (*какобманутьпрезидента*). Honcharuk resigned two days later.
 
-Honcharuk acknowledged in a video [posted](https://www.facebook.com/PMHoncharuk/videos/474743116781444/?__xts__%5b0%5d=68.ARCK98Cv52-4VqShQnaf5Rs8Co3_hy-W3QtEd5nTqiqLdGCUJcBC6zIg5FOGkPHUpmpXAB0riICv4VvcEz55TNr_dTULGXdSEayR4hqxdCJiDHhFtDxnVoXhECi4ys0DJstTbeqNztDC1zjCFEFrPzs4QA2V7wu-WTfRw-XOje6hE6SNPbbhl5CI8vVeIlGNhQtLgNKSOIN_HpTDpO39GsABlAYUzPPjFg4dfoTUQwiZT96puUoDCAopLzb8MkS_IK72-cqLB5ct0F4FBVFvZvcQCvv0RB9T-pyWjRJU8nXfjaa2MSUU9XGZ9RyHFT8129JiRsy3Y8BIKn_9p-KiQYfMR4phuLA2&__tn__=-R) to Facebook on the eve of his resignation that **he himself is an ignoramus about economics** (*якщо це не гарні новини для країни, то я повний “профан” в економіці!*). The next day in parliament, he [said](https://iportal.rada.gov.ua/meeting/stenogr/show/7333.html) whoever made and released the recording of the meeting was trying to sow discord within z!team and create the impression that someone does not respect the president, who also is an ignoramus about economics.
+Honcharuk acknowledged in a video [posted](https://www.facebook.com/PMHoncharuk/videos/474743116781444/?__xts__%5b0%5d=68.ARCK98Cv52-4VqShQnaf5Rs8Co3_hy-W3QtEd5nTqiqLdGCUJcBC6zIg5FOGkPHUpmpXAB0riICv4VvcEz55TNr_dTULGXdSEayR4hqxdCJiDHhFtDxnVoXhECi4ys0DJstTbeqNztDC1zjCFEFrPzs4QA2V7wu-WTfRw-XOje6hE6SNPbbhl5CI8vVeIlGNhQtLgNKSOIN_HpTDpO39GsABlAYUzPPjFg4dfoTUQwiZT96puUoDCAopLzb8MkS_IK72-cqLB5ct0F4FBVFvZvcQCvv0RB9T-pyWjRJU8nXfjaa2MSUU9XGZ9RyHFT8129JiRsy3Y8BIKn_9p-KiQYfMR4phuLA2&__tn__=-R) to Facebook on the eve of his resignation that **he himself is an ignoramus about economics** (*якщо це не гарні новини для країни, то я повний “профан” в економіці!*). The next day in parliament, he [said](https://iportal.rada.gov.ua/meeting/stenogr/show/7333.html) whoever made and released the recording of the meeting was trying to sow discord within Z!Team and create the impression that someone does not respect the president, who also is an ignoramus about economics.
 
 Industrial production in Ukraine in November 2019 decreased by 7.5% compared to November 2018 after a decrease of 5% in October and 1.1% in September, according to Ukraine’s State Statistics Service. This explains why the country’s leading industrialists and exporters were outspoken critics of the government’s macroeconomic policy.
 
@@ -3162,7 +3162,7 @@ Stay strong, stay smart, stay healthy. My ass.
 
 *Deflationism is the naloxone of truth theories*
 
-KYIV. On July 13, about a dozen young employees of the National Bank of Ukraine called for the central bank to remain independent in a YouTube message addressed to President Volodymyr z..
+KYIV. On July 13, about a dozen young employees of the National Bank of Ukraine called for the central bank to remain independent in a YouTube message addressed to President Volodymyr Z.
 
 The two-minute clip is a thinly veiled PR attack on Serhiy Kruglyk's candidacy to replace Yakiv Smolii as NBU governor, featuring self-appointed members of “[Children of Soros](https://balashov.com.ua/blogs/deti-sorosa.html),” the group of \*woke\* banking bloggers that has rapidly turned the [President’s Office](https://www.president.gov.ua/news/volodimir-zelenskij-proviv-telefonnu-rozmovu-z-direktorom-ro-62277)’s NBU governor candidate selection process into a three-ring circus.
 
@@ -3303,7 +3303,7 @@ As sacked Prime Minister Oleksiy Honcharuk recently pointed out in a [3-hour int
 
 ###### Jan 17, 2020 - Honcharuk resigns. ([Operation Y](https://abdymok.substack.com/p/operation-y-contd))
 
-###### June 30, 2020 - NBU Governor Yakiv Smolii meets with President Volodymyr z..
+###### June 30, 2020 - NBU Governor Yakiv Smolii meets with President Volodymyr Z.
 
 ###### July 1, 2020 - Smolii resigns in writing, claiming “systemic political pressure.” ([NBU is Kaput](https://abdymok.substack.com/p/national-bank-of-ukraine-is-kaput))
 
@@ -3864,13 +3864,13 @@ President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhav
 
 [Image]
 
-Alas, z!team did nothing to prepare for the pandemic in February and March.
+Alas, Z!Team did nothing to prepare for the pandemic in February and March.
 
 There was no individual-level containment, which would have had minimal effect on the economy. Instead, Illia Yemets, a corrupt hack from the era of disgraced former President Viktor Yanukovych, was installed as Health Minister. He said the country’s limited medical resources shouldn’t be wasted on people over the age of 65.
 
 Yemets was sacked after members of Ukraine’s jet set brought the virus back to Ukraine from European ski resorts. Germy priests co-mingled with hundreds of thousands of returning migrant workers and exacerbated the situation. All regions have since seen a steady increase in cases.
 
-The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. z!team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
+The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. Z!Team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
 
 ---
 
@@ -3982,7 +3982,7 @@ cf. [Kommersant interview](https://bit.ly/3hIy9RD)
 
 *Date: 2020-09-02 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*Brought to you by z!team*
+*Brought to you by Z!Team*
 
 [Image]
 
@@ -4771,13 +4771,13 @@ Z [told](https://www.president.gov.ua/en/news/glava-derzhavi-postaviv-nizku-zavd
 
 [Image]
 
-z!team did nothing to prepare for the pandemic in February and March.
+Z!Team did nothing to prepare for the pandemic in February and March.
 
 There was no individual-level containment, which would have had minimal effect on the economy. Instead, Illia Yemets, a corrupt hack from the era of disgraced former President Viktor Yanukovych, was installed as Health Minister. He said the country’s limited medical resources shouldn’t be wasted on people over the age of 65.
 
 Yemets was sacked after members of Ukraine’s jet set brought the virus back to Ukraine from European ski resorts. Germy priests co-mingled with hundreds of thousands of returning migrant workers and exacerbated the situation. All regions have since seen a steady increase in cases.
 
-The idea that restrictions imposed in March could be lifted after hospitals were re-equipped was abandoned. z!team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
+The idea that restrictions imposed in March could be lifted after hospitals were re-equipped was abandoned. Z!Team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for a policy of **harm reduction**, the success of which will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
 
 ---
 
@@ -4785,7 +4785,7 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 *Date: 2020-10-01 | Status: Published | Audience: only_paid | Type: newsletter*
 
-*z!team sending cobalt miners to Donbas*
+*Z!Team sending cobalt miners to Donbas*
 
 [Image]
 
@@ -4851,7 +4851,7 @@ cf. [Thug Life](https://abdymok.substack.com/p/thug-life) (May 6, 2020)
 
 [Image]
 
-Google search spits out more than [10 million links](https://www.google.com/search?q=%D0%B7%D0%B5%D0%BB%D0%B5%D0%BD%D1%81%D0%BA%D0%B8%D0%B9+%D0%B2%D1%82%D0%BE%D1%80%D0%B0%D1%8F+%D0%B2%D0%BE%D0%BB%D0%BD%D0%B0&oq=%D0%B7%D0%B5%D0%BB&aqs=chrome.0.69i59j69i57j46j0l4j46.1264j0j15&sourceid=chrome&ie=UTF-8) for a search of “зеленский вторая волна” (Z second wave). Ukraine’s president has given a false sense of how the Covid-19 pandemic is actually developing in his country.
+Google search spits out more than [10 million links](https://www.google.com/search?q=%D0%B7%D0%B5%D0%BB%D0%B5%D0%BD%D1%81%D0%BA%D0%B8%D0%B9+%D0%B2%D1%82%D0%BE%D1%80%D0%B0%D1%8F+%D0%B2%D0%BE%D0%BB%D0%BD%D0%B0&oq=%D0%B7%D0%B5%D0%BB&aqs=chrome.0.69i59j69i57j46j0l4j46.1264j0j15&sourceid=chrome&ie=UTF-8) for a search of “зеленский вторая волна” (z second wave). Ukraine’s president has given a false sense of how the Covid-19 pandemic is actually developing in his country.
 
 The COVID-19 incidence pattern in Ukraine [shows](https://covid19.rnbo.gov.ua/?fbclid=IwAR1TXauFhOd3A9iOgaRCiZ27py5Ngz2hmDkaVuZj_7U-Oe3ejIQn34wBT9I) clearly the first wave continues to rise with little or no interruption. This is particularly common in the world’s poorer countries with inefficient and corrupt health systems.
 
@@ -4897,13 +4897,13 @@ President Volodymyr Z [told](https://www.president.gov.ua/en/news/glava-derzhav
 
 [Image]
 
-**z!team did nothing to prepare for the pandemic in February and March.**
+**Z!Team did nothing to prepare for the pandemic in February and March.**
 
 There was no individual-level containment, which would have had minimal effect on the economy. Instead, Illia Yemets, a corrupt hack from the era of disgraced former President Viktor Yanukovych, was installed as Health Minister. He said the country’s limited medical resources shouldn’t be wasted on people over the age of 65.
 
 Yemets was sacked after members of Ukraine’s jet set brought the virus back to Ukraine from European ski resorts. Germy priests co-mingled with hundreds of thousands of returning migrant workers and exacerbated the situation. All regions have since seen a steady increase in cases.
 
-The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. z!team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for **harm reduction**. The success of this policy will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
+The idea that restrictions imposed in March could be lifted after hospitals were re-equipped has been abandoned. Z!Team in April gave up on a policy of sufficient testing and contact tracing altogether, opting for **harm reduction**. The success of this policy will likely depend on the unpredictable zeal of the nation’s vertically-integrated 300,000+ police force to delouse infected establishments and their owners.
 
 ---
 
@@ -4925,7 +4925,7 @@ The idea that restrictions imposed in March could be lifted after hospitals were
 
 ---
 
-Which brings us to the Zollman Effect, which posits that groups with more network connections will be generically less likely to arrive at a correct consensus. The group needs to entertain all the possible options long enough to gather good evidence and settle on the best one. In tightly connected networks, misleading evidence is widely shared, and may cause the community to pre-emptively settle on poor theories. Like in Ukraine under President Volodymyr z..
+Which brings us to the Zollman Effect, which posits that groups with more network connections will be generically less likely to arrive at a correct consensus. The group needs to entertain all the possible options long enough to gather good evidence and settle on the best one. In tightly connected networks, misleading evidence is widely shared, and may cause the community to pre-emptively settle on poor theories. Like in Ukraine under President Volodymyr Z.
 
 ---
 
@@ -4943,7 +4943,7 @@ Which brings us to the Zollman Effect, which posits that groups with more networ
 
 [Image]
 
-The immediate result of the U.S. presidential election as of this writing is no longer uncertain, at least not for Volodymyr z.. Ukraine’s president concluded in late January 2020 that Donald Trump would be re-elected. He was wrong. The mistake will cost him dearly.
+The immediate result of the U.S. presidential election as of this writing is no longer uncertain, at least not for Volodymyr Z. Ukraine’s president concluded in late January 2020 that Donald Trump would be re-elected. He was wrong. The mistake will cost him dearly.
 
 [Image]
 
@@ -5055,7 +5055,7 @@ Poroshenko said the targets of the operation included dozens involved in the dow
 
 > "Unfortunately, the operation was scuppered, thwarted by specific individuals. I strongly advise creating a temporary commission of inquiry. I strongly advise interrogating all participants in the process," Poroshenko [said](https://www.youtube.com/watch?v=NrojoLqYsX4&ab_channel=5%D0%BA%D0%B0%D0%BD%D0%B0%D0%BB).
 
-The news is very bad for z!team, which has been lying about the [clandestine fuckery](https://abdymok.substack.com/p/clandestine-fuckery) for months.
+The news is very bad for Z!Team, which has been lying about the [clandestine fuckery](https://abdymok.substack.com/p/clandestine-fuckery) for months.
 
 [BELLINGCAT](https://www.bellingcat.com/) is investigating. Their report is expected to be released in early 2021.
 
