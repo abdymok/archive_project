@@ -278,7 +278,7 @@ So: helicopters shot up over Caracas, tankers seized in international waters, Ru
 
 [3](#footnote-anchor-3)
 
-[Volodymyr z. overhauls Ukraine’s security apparatus.](https://www.ft.com/content/73140502-f8e1-427e-b70a-04e2489cae67) *Ukrainian president appoints military intelligence boss as his chief of staff ahead of meeting on security guarantees* ([The Financial Times](http://ft.com), January 5, 2026)
+[Volodymyr Z overhauls Ukraine’s security apparatus.](https://www.ft.com/content/73140502-f8e1-427e-b70a-04e2489cae67) *Ukrainian president appoints military intelligence boss as his chief of staff ahead of meeting on security guarantees* ([The Financial Times](http://ft.com), January 5, 2026)
 
 [4](#footnote-anchor-4)
 
@@ -2130,7 +2130,7 @@ Perhaps, gentlemen, fewer sources. More thought.
 
 [1](#footnote-anchor-1)
 
-[z. planning elections in Ukraine and vote on peace deal](https://archive.ph/INWX2#selection-1565.0-1569.115). *Trump administration has pressured Ukrainian leader to hold both votes by May 15 or risk losing security guarantees* ([The Financial Times](http://ft.com), February 11, 2026)
+[Z planning elections in Ukraine and vote on peace deal](https://archive.ph/INWX2#selection-1565.0-1569.115). *Trump administration has pressured Ukrainian leader to hold both votes by May 15 or risk losing security guarantees* ([The Financial Times](http://ft.com), February 11, 2026)
 
 ---
 
@@ -2142,7 +2142,7 @@ Perhaps, gentlemen, fewer sources. More thought.
 
 *Week in Review*
 
-*With the exception of this introduction, our post has been* enchanted*, indeed compiled completely, by AI, using Google’s NotebookLM to distill posts over the last week. It took about five minutes. It does not include a critique of Simon’s [z. makes his pitch to Trump](https://archive.ph/MSTXS#selection-605.0-1157.325) advertorial appearing in [The Atlantic](http://theatlantic.com) on February 12. It also leaves out the disqualification of the Ukrainian skeleton racer from the Olympic games.*
+*With the exception of this introduction, our post has been* enchanted*, indeed compiled completely, by AI, using Google’s NotebookLM to distill posts over the last week. It took about five minutes. It does not include a critique of Simon’s [Z makes his pitch to Trump](https://archive.ph/MSTXS#selection-605.0-1157.325) advertorial appearing in [The Atlantic](http://theatlantic.com) on February 12. It also leaves out the disqualification of the Ukrainian skeleton racer from the Olympic games.*
 
 *We continue to enchant old photos in order to see what AI spits out.*
 
@@ -2313,9 +2313,9 @@ Their argument is internally coherent. De jure recognition of Russia’s territo
 
 The premise is Ukraine as rational unitary actor — a government capable of correctly assessing strategic tradeoffs, negotiating binding commitments, and administering a credible postwar state behind a newly recognised line. This Ukraine appears regularly in [Foreign Affairs](https://www.foreignaffairs.com/russia/price-peace-ukraine). It does not appear in Kyiv.
 
-Consider the evidentiary record the authors decline to consult. On January 19, 2022 — thirty-six days before the full-scale invasion, after explicit warnings from the CIA, MI6, and Ukrainian military intelligence had been delivered repeatedly — President z. told the nation to plan its Easter celebrations, its May holidays, its spring barbecues. A leader who could not process unambiguous invasion intelligence at thirty-six days’ remove is not a leader who will correctly model the consequences of de jure border recognition or credibly commit to anything Brussels or Moscow requires.
+Consider the evidentiary record the authors decline to consult. On January 19, 2022 — thirty-six days before the full-scale invasion, after explicit warnings from the CIA, MI6, and Ukrainian military intelligence had been delivered repeatedly — President Z told the nation to plan its Easter celebrations, its May holidays, its spring barbecues. A leader who could not process unambiguous invasion intelligence at thirty-six days’ remove is not a leader who will correctly model the consequences of de jure border recognition or credibly commit to anything Brussels or Moscow requires.
 
-The morning after z.’s Munich performance, Ukraine’s National Anti-Corruption Bureau detained the former Energy Minister at the border. On a train. The formal suspicion notice — including a schematic of the financial architecture — is [publicly available](https://nabu.gov.ua/news/sprava-midas-pidozriuyet-sia-eksministr-energetyky/) and worth reading carefully.
+The morning after Z’s Munich performance, Ukraine’s National Anti-Corruption Bureau detained the former Energy Minister at the border. On a train. The formal suspicion notice — including a schematic of the financial architecture — is [publicly available](https://nabu.gov.ua/news/sprava-midas-pidozriuyet-sia-eksministr-energetyky/) and worth reading carefully.
 
 > In February 2021, a fund was registered on Anguilla by members of a criminal organisation operating inside the energy ministry, headed by a professional money launderer from the Seychelles. Shell companies in the Marshall Islands named the minister’s ex-wife and four children as beneficiaries. Over $112 million in cash from criminal activity in the energy sector was laundered through three Swiss banks. The children’s tuition at prestigious Swiss schools was paid from these accounts.
 
@@ -3403,7 +3403,7 @@ Pearl, Judea. [Causality: Models, Reasoning, and Inference](https://www.google
 
 [3](#footnote-anchor-3)
 
-[EU blasts z. over veiled threat against Orbán](https://www.politico.eu/article/eu-to-volodymyr-zelenskyy-dial-down-not-acceptable-rhetoric-against-hungary-viktor-orban/). *Brussels issues rare condemnation of Ukraine’s president, as the Budapest-Kyiv feud boils over.* ([Politico](http://politico.eu), March 6, 2026)
+[EU blasts Z over veiled threat against Orbán](https://www.politico.eu/article/eu-to-volodymyr-zelenskyy-dial-down-not-acceptable-rhetoric-against-hungary-viktor-orban/). *Brussels issues rare condemnation of Ukraine’s president, as the Budapest-Kyiv feud boils over.* ([Politico](http://politico.eu), March 6, 2026)
 
 ---
 
@@ -6166,7 +6166,7 @@ At that point, the flattering fictions of wartime will become less useful. And t
 
 **48:26** — **Umerov:** [reacting] after the news. **Mindich:** Yes. This conversation takes place on Monday morning,
 
-**48:33** — July 8, 2025. Over the weekend, President Volodymyr z. informed the current Defense Minister Rustem Umerov of his intention to appoint him as Ukraine’s Ambassador to the United States.
+**48:33** — July 8, 2025. Over the weekend, President Volodymyr Z informed the current Defense Minister Rustem Umerov of his intention to appoint him as Ukraine’s Ambassador to the United States.
 
 **48:49** — For the position of Defense Minister, as follows from the subsequent conversation, the candidacy of then-Prime Minister Denys Shmyhal is being considered.
 
@@ -8447,7 +8447,7 @@ Which raises the obvious question: if you truly possessed Kremlin materials, wou
 
 But on May 21, the very next day, something interesting happened.
 
-“Ukraine will send reinforcements to its northern regions and step up diplomatic pressure on Belarus to counter what Kyiv believes are Russian plans to launch a new offensive north of the capital,” [z. announced](https://www.theguardian.com/world/2026/may/21/ukraine-war-briefing-fresh-threat-of-attack-from-belarus-front-warns-zelenskyy). “We analysed in detail the available data from our intelligence agencies on Russia’s planning of offensive operations in the Chernihiv-Kyiv direction.”
+“Ukraine will send reinforcements to its northern regions and step up diplomatic pressure on Belarus to counter what Kyiv believes are Russian plans to launch a new offensive north of the capital,” [Z announced](https://www.theguardian.com/world/2026/may/21/ukraine-war-briefing-fresh-threat-of-attack-from-belarus-front-warns-zelenskyy). “We analysed in detail the available data from our intelligence agencies on Russia’s planning of offensive operations in the Chernihiv-Kyiv direction.”
 
 Kyiv knows of five scenarios Russia has drawn up. Yikes!
 
@@ -9709,7 +9709,7 @@ Also Sunday evening: an Iskander ballistic missile hit an agricultural enterpris
 
 ---
 
-On Sunday, z. told 1+1 TV that Ukrainian drones had struck oil refineries in Tyumen — 2,070 kilometers in a straight line, 2,500 by route. The next generation of drones will reach 3,000 kilometers and beyond. “We understand where all their military factories are, where their oil bases, gas storage facilities are,” he said. “We need tools for a longer distance for a longer time.”
+On Sunday, Z told 1+1 TV that Ukrainian drones had struck oil refineries in Tyumen — 2,070 kilometers in a straight line, 2,500 by route. The next generation of drones will reach 3,000 kilometers and beyond. “We understand where all their military factories are, where their oil bases, gas storage facilities are,” he said. “We need tools for a longer distance for a longer time.”
 
 Tyumen is in western Siberia. It is not a place that, on February 24, 2022, most people would have included in a map of this war.
 
@@ -11751,7 +11751,7 @@ Things no longer feel quite as static as they did a year ago.
 
 That’s because it’s now a war against the rear — a war of rear-ends, Z’s and Laura’s, as it were.
 
-The thought occurred to me this morning looking across the courtyard at a hollowed-out building advertising a film called Rave On, starring Volodymyr z. and Laura Loomer, hanging from a crane hook above a doorway whose elevator hasn’t worked in years — the kind of image that makes you suspect the city itself is doing the editorializing.
+The thought occurred to me this morning looking across the courtyard at a hollowed-out building advertising a film called Rave On, starring Volodymyr Z and Laura Loomer, hanging from a crane hook above a doorway whose elevator hasn’t worked in years — the kind of image that makes you suspect the city itself is doing the editorializing.
 
 Thanks to Laura, the war has also moved into MAGA world. The woman who not long ago told her audience that Ukraine was run by Nazis, then by jihadi apologists, and called its president more dictator than elected leader took the thirty-hour train from Poland — there is no other way in now — and came back with a cruddy film.
 
@@ -11807,7 +11807,7 @@ Added the 2019 and 2000 markdown files for people to interrogate w/ gemini and c
 
 ## 2019
 
-**01 — z.’s Landslide Victory**  
+**01 — Z’s Landslide Victory**  
 *[Z and the Golden Pyramid Guy](https://abdymok.substack.com/p/z-and-the-golden-pyramid-guy)*  
 *April 6, 2019*
 
@@ -11827,7 +11827,7 @@ Added the 2019 and 2000 markdown files for people to interrogate w/ gemini and c
 *[The Peacemakers](https://abdymok.substack.com/p/day-1463)*  
 *December 2019 · retro*
 
-**06 — The Trump–z. “Favor” Call**  
+**06 — The Trump–Z “Favor” Call**  
 *[Rudy’s Ukraine Problem Just Got Worse](https://abdymok.substack.com/p/day-705)*  
 *May 19, 2019*
 
@@ -11909,7 +11909,7 @@ A single bacterium can’t do much. It’s too small to matter, too weak to over
 
 It’s tempting to read the last two years this way. No single warehouse fire, no single refinery strike, changes anything — the ledger of the war doesn’t move on any one of them. What moves it is density: enough strikes, close enough together, and the rear stops absorbing the damage quietly and starts visibly buckling. Same logic on the other side of the ledger: no single influencer conversion, no single senator’s deathbed consistency, no single sanctions bill matters on its own. But enough of them clustered in the same six weeks — Loomer, [the comedian with the MAGA audience](https://apnews.com/article/laura-loomer-trump-ukraine-russia-interview-101852f6deab17e1d8d215fdde675ee5), Trump’s Truth Social post, the [Ossoff evisceration](https://www.youtube.com/watch?v=JMFw71IV5oQ) — and something that looked frozen for years quietly crosses a threshold and the tone in the room changes, the way it’s supposed to.
 
-“Laura Loomer is doing a great job in Ukraine. Her interview with President z. was very interesting and informative. She has really changed her mind on Ukraine, and I think that is a good thing. Congratulations Laura!” - Trump, [Truth Social](https://truthsocial.com/@realDonaldTrump/116972245395063508), July 23, 2026.
+“Laura Loomer is doing a great job in Ukraine. Her interview with President Z was very interesting and informative. She has really changed her mind on Ukraine, and I think that is a good thing. Congratulations Laura!” - Trump, [Truth Social](https://truthsocial.com/@realDonaldTrump/116972245395063508), July 23, 2026.
 
 The uncomfortable part of the metaphor is the eavesdropping. Bacteria aren’t the only ones who count signals — the viruses that infect them do too, sitting dormant inside a host cell until they sense enough other hosts nearby to make it worth bursting out and killing this one. They wait for someone else’s quorum to ripen before cashing in on it. Watch who in this story seems to be doing that.
 
@@ -12289,7 +12289,7 @@ The current military-political tandem of Commander-in-Chief (CiC) Drapaty and De
 
 **4. Geopolitical Fallout: The Trump-Z Dialogue and “Donnyland”**
 
-The late-July dialogues between President z. and President Trump resulted in the “Donnyland” proposal—a framework predicated on the exchange of Donbas territory for conditional security guarantees.
+The late-July dialogues between President Z and President Trump resulted in the “Donnyland” proposal—a framework predicated on the exchange of Donbas territory for conditional security guarantees.
 
 **The “Donnyland” Proposal: Stated Terms vs. Legal/Strategic Hurdles**
 
@@ -12990,7 +12990,7 @@ The man at a wooden table.
 
 Fedorov is one of the weasels in Ukraine’s giraffe problem [we wrote about yesterday](https://abdymok.substack.com/p/day-1638).
 
-Before the weasel taxonomy, though, the video itself. The Guardian says Fedorov has “nimbly positioned himself to challenge z.” once elections happen ([Guardian](https://www.theguardian.com/world/2026/aug/19/mykhailo-fedorov-zelenskyy-loyalist-opponent-ukraine), Aug 19, 2026). The FT calls it an “explosive nine-minute video” in which Fedorov accused Z of systemic failures and abuse of martial-law powers ([FT](https://www.ft.com/content/5799e5fa-c836-443b-935d-eb9fb58681b6?syn-25a6b1a6=1), Aug 19, 2026).
+Before the weasel taxonomy, though, the video itself. The Guardian says Fedorov has “nimbly positioned himself to challenge Z” once elections happen ([Guardian](https://www.theguardian.com/world/2026/aug/19/mykhailo-fedorov-zelenskyy-loyalist-opponent-ukraine), Aug 19, 2026). The FT calls it an “explosive nine-minute video” in which Fedorov accused Z of systemic failures and abuse of martial-law powers ([FT](https://www.ft.com/content/5799e5fa-c836-443b-935d-eb9fb58681b6?syn-25a6b1a6=1), Aug 19, 2026).
 
 Nimble and explosive — nobody at either paper seems to have watched it as a video rather than mined it for adjectives. Nine minutes is a long time to hold a camera on a man with, by his own account, zero interest in office. Somebody storyboarded those nine minutes. The jacket, the table, the lighting, the missing flag — all of it chosen. Before what Fedorov said, let’s look at how he was styled while saying it.
 
@@ -13104,7 +13104,7 @@ These entries detail the brilliantly planned, state-sabotaged intelligence sting
 
   - **Direct Link:** [https://abdymok.substack.com/p/ukraines-plan-](https://www.google.com/url?sa=E&q=https%3A%2F%2Fabdymok.substack.com%2Fp%2Fukraines-plan-)
 - **I, an Actor (November 18, 2021)**  
-  *z.’s public defense, performance, and shifting narratives.*
+  *Z’s public defense, performance, and shifting narratives.*
 
   - **Direct Link:** [https://abdymok.substack.com/p/i-an-actor](https://www.google.com/url?sa=E&q=https%3A%2F%2Fabdymok.substack.com%2Fp%2Fi-an-actor)
 - **Pants on Fire (November 2021)**  
@@ -13127,7 +13127,7 @@ The complete archive of the explosive **$100 million Energoatom kickback scheme*
 
   - **Direct Link:** [https://nabu.gov.ua/news/sprava-midas-pidozriuyet-sia-eksministr-energetyky/](https://www.google.com/url?sa=E&q=https%3A%2F%2Fnabu.gov.ua%2Fnews%2Fsprava-midas-pidozriuyet-sia-eksministr-energetyky%2F)
 - **Day 1246 — The Gutting of Oversight (July 2025)**  
-  *Chronicles the fateful moment z. signed the law dismantling anti-corruption agency independence, prompting massive street protests.*
+  *Chronicles the fateful moment Z signed the law dismantling anti-corruption agency independence, prompting massive street protests.*
 
   - **Direct Link:** [https://abdymok.substack.com/p/day-1246](https://www.google.com/url?sa=E&q=https%3A%2F%2Fabdymok.substack.com%2Fp%2Fday-1246)
 - **Day 1520 — Heavy Rotation (April 24, 2026)**  
@@ -13156,7 +13156,7 @@ The complete archive of the explosive **$100 million Energoatom kickback scheme*
 
   - **Direct Link:** [https://abdymok.substack.com/p/sbu-goes-coup-coup](https://www.google.com/url?sa=E&q=https%3A%2F%2Fabdymok.substack.com%2Fp%2Fsbu-goes-coup-coup)
 - **We Must Pull the Lever / SBU Goes Coup Coup (November 27, 2021)**  
-  *Applies the “trolley problem” to z.’s chaotic executive decision-making.*
+  *Applies the “trolley problem” to Z’s chaotic executive decision-making.*
 
   - **Direct Link:** [https://abdymok.substack.com/p/ukraine-goes-coup-coup](https://www.google.com/url?sa=E&q=https%3A%2F%2Fabdymok.substack.com%2Fp%2Fukraine-goes-coup-coup)
 - **Day 1024 — Deus Vult (December 13, 2024)**  
@@ -14525,7 +14525,7 @@ Moscow refinery: actually stopped.
 
 The SBU said Ukrainian forces struck the Moscow refinery on September 20. Fire Point said its FP-1 drones were involved; Reuters reported that both primary crude-distillation units caught fire and that repairs could take several weeks.
 
-According to the Financial Times, “diesel” came up repeatedly in Trump’s call with z. on Sunday: “diesel, diesel ... diesel.”
+According to the Financial Times, “diesel” came up repeatedly in Trump’s call with Z on Sunday: “diesel, diesel ... diesel.”
 
 Then Trump posted his own diagnosis on Truth Social:
 
@@ -14545,7 +14545,7 @@ America is looking for cheaper Belarusian potash.
 
 Lukashenko is releasing prisoners in exchange for sanctions relief.
 
-z. is meeting Trump in New York.
+Z is meeting Trump in New York.
 
 Oleshky is eating purslane.
 
@@ -14626,19 +14626,19 @@ Anyway, that’s what I was thinking yesterday afternoon walking up the hill, ad
 In other news, Z’s 33-minute interview with Emma at [WSJ](https://www.wsj.com/world/ukraine-zelensky-interview-emma-tucker-757e9a30). The pow wow took place *after* Z chatted up Trump.
 
 > **Tucker:** What did you get from Trump?  
-> **z.:** A possible route toward an energy ceasefire, and an opening for more U.S. weapons—especially Patriots for winter.
+> **Z:** A possible route toward an energy ceasefire, and an opening for more U.S. weapons—especially Patriots for winter.
 >
 > **Tucker:** Will Putin actually stop?  
-> **z.:** Not without pressure.
+> **Z:** Not without pressure.
 >
 > **Tucker:** Why hasn’t Putin stopped already?  
-> **z.:** Because he isn’t winning, but he isn’t losing.
+> **Z:** Because he isn’t winning, but he isn’t losing.
 >
 > **Tucker:** What changes that?  
-> **z.:** Pressure—especially from Washington and on the Russian economy.
+> **Z:** Pressure—especially from Washington and on the Russian economy.
 >
 > **Tucker:** What does Ukraine need now?  
-> **z.:** Air defense and the winter weapons package.
+> **Z:** Air defense and the winter weapons package.
 
 She also asked about Z’s meeting with the CIA director Ratcliffe. Z said he won't disclose what they discussed.
 
@@ -15684,7 +15684,7 @@ Trump: eight wars settled.
 Putin: birthday.  
 Diesel: $6.50+.  
 Kyiv, Pryluky, Kremenchuk, Kramatorsk: BOOM.  
-z.: 78 killed in two days.  
+Z: 78 killed in two days.  
 Me: Russia turned off the lights.
 
 If you’re in Kyiv, or keeping an eye on Ukraine from somewhere else, bookmark this:
@@ -15803,9 +15803,9 @@ A few days later, Trump announced an energy truce. Our description was more exac
 
 Then came October 9. Trump announced on Truth Social that Putin had agreed to supply [more than 300,000 tonnes of diesel immediately, 500,000 tonnes in November and millions more thereafter](https://www.itv.com/news/2026-10-09/trump-says-us-to-obtain-diesel-from-russia-despite-energy-sanctions). The announcement came only weeks after Trump signed a sweeping Russia sanctions law. The Treasury issued a temporary license easing sanctions on Russian diesel. The White House did not immediately say who would pay or when the fuel would arrive. A senior Ukrainian official told the Associated Press that [Kyiv learned of the deal afterward](https://www.abc.net.au/news/2026-10-11/trump-blames-zelenskyy-for-rising-diesel-prices-in-the-us/107252632).
 
-The announcement came as Witkoff and Kushner were meeting Ukrainian officials in Miami to discuss proposals to end the war. z. called the deal a weak decision by strong partners. Russia, he said, would repay it with further terror and perfidy. [Reuters reported the deal and the temporary easing of sanctions.](https://www.reuters.com/business/energy/trump-big-announcement-coming-up-diesel-2026-10-09/)
+The announcement came as Witkoff and Kushner were meeting Ukrainian officials in Miami to discuss proposals to end the war. Z called the deal a weak decision by strong partners. Russia, he said, would repay it with further terror and perfidy. [Reuters reported the deal and the temporary easing of sanctions.](https://www.reuters.com/business/energy/trump-big-announcement-coming-up-diesel-2026-10-09/)
 
-On Saturday, Trump told reporters Ukraine should get [“a new leader who can make a deal.”](https://www.inquirer.com/news/nation-world/trump-zelensky-ukraine-new-president-putin-diesel-deal-russia-europe-allies-20261010.html) He blamed z. for American diesel prices, although the war in Iran has also driven energy prices higher worldwide. z. replied that Russia had thanked Washington for easing sanctions by killing people in Zaporizhia.
+On Saturday, Trump told reporters Ukraine should get [“a new leader who can make a deal.”](https://www.inquirer.com/news/nation-world/trump-zelensky-ukraine-new-president-putin-diesel-deal-russia-europe-allies-20261010.html) He blamed Z for American diesel prices, although the war in Iran has also driven energy prices higher worldwide. Z replied that Russia had thanked Washington for easing sanctions by killing people in Zaporizhia.
 
 The matchmakers had arrived to arrange peace. They had left Moscow with a fuel announcement, Washington with a sanctions exception, and Kyiv with a lecture about its president.
 
@@ -16064,7 +16064,7 @@ During the drive to Peremoha and back we saw several bombed out warehouses, and 
 
 With only 15 days remaining before the midterm elections, the US presidential administration is worried about battleground Senate races in Georgia, Maine, Michigan, North Carolina and Ohio. That probably explains this batshit social media post.
 
-> My decision on Russia is a very simple one. I am in the process of negotiating Peace in the war between Russia and Ukraine, and don’t want to do anything that will drive, foolishly, Russia away from the bargaining table. Great progress is being made, and that includes current hostage negotiations! Signing that document at this time will do that, and I can sign it later, or any time that I want! Perhaps more importantly, Russia is doing very little, if anything, to help the Islamic Republic of Iran, compared to what they could be doing, and I want to keep it that way, and will, unless stupid people get in the way. Lastly, z. is using Diesel Refineries in Russia as a target, knowing that these attacks are seriously hurting the world diesel markets, including those in the United States. Farmers, ranchers, and businesses of all kinds are suffering greatly from this, but Russia is, nevertheless, sending, at a low price, millions of barrels of diesel to the World. z. doesn’t care, and frankly, with all of the money that Europe is famously giving him, and that Crooked Joe Biden gave him in the past, he doesn’t want to end this war, and probably never did. He could have made a better deal two years ago than he can now. His country is in shambles, a large portion of his land is lost, his oceans and seas are gone, and his male population is low, wounded, and/or dead. I WANT THIS WAR END! Thank you for your attention to this matter. President DONALD J. TRUMP — October 18, 2026 ([Truth Social](https://truthsocial.com/@realDonaldTrump/117464066672004379?utm_source=chatgpt.com))
+> My decision on Russia is a very simple one. I am in the process of negotiating Peace in the war between Russia and Ukraine, and don’t want to do anything that will drive, foolishly, Russia away from the bargaining table. Great progress is being made, and that includes current hostage negotiations! Signing that document at this time will do that, and I can sign it later, or any time that I want! Perhaps more importantly, Russia is doing very little, if anything, to help the Islamic Republic of Iran, compared to what they could be doing, and I want to keep it that way, and will, unless stupid people get in the way. Lastly, Z is using Diesel Refineries in Russia as a target, knowing that these attacks are seriously hurting the world diesel markets, including those in the United States. Farmers, ranchers, and businesses of all kinds are suffering greatly from this, but Russia is, nevertheless, sending, at a low price, millions of barrels of diesel to the World. Z doesn’t care, and frankly, with all of the money that Europe is famously giving him, and that Crooked Joe Biden gave him in the past, he doesn’t want to end this war, and probably never did. He could have made a better deal two years ago than he can now. His country is in shambles, a large portion of his land is lost, his oceans and seas are gone, and his male population is low, wounded, and/or dead. I WANT THIS WAR END! Thank you for your attention to this matter. President DONALD J. TRUMP — October 18, 2026 ([Truth Social](https://truthsocial.com/@realDonaldTrump/117464066672004379?utm_source=chatgpt.com))
 
 [1](#footnote-anchor-1)
 
@@ -16564,7 +16564,7 @@ Since Day 1 of Russia’s genocidal campaign, Newsmax has, for the most part, be
 
 [[Embedded media]]
 
-Newmax recently has given Trump the platform and z. his interviews, but not as neutral observers or documentalists. I don’t understand why anyone would think it will be otherwise in Kherson. Looking on the bright side, maybe we’ll be surprised.
+Newmax recently has given Trump the platform and Z his interviews, but not as neutral observers or documentalists. I don’t understand why anyone would think it will be otherwise in Kherson. Looking on the bright side, maybe we’ll be surprised.
 
 ---
 
@@ -16916,13 +16916,13 @@ What Trump said last night about Russia’s genocidal war against Ukraine.
 >
 > Ross Douthat: There is still a war going on. What’s the biggest obstacle to peace?
 >
-> President Donald Trump: It was the hatred between z. and Putin. If I had been president that war would’ve never started. Zero chance. But it did start. So I inherited that war. I believe we’re very close to making a deal--
+> President Donald Trump: It was the hatred between Z and Putin. If I had been president that war would’ve never started. Zero chance. But it did start. So I inherited that war. I believe we’re very close to making a deal--
 >
 > Ross Douthat: Who-- who do you trust more, President Putin or President z.--
 >
 > President Donald Trump: Well, I’d rather not say, but I get along with both. I believe that that war is going to end, and it’s gonna end soon. And the only reason it’s gonna end is because of me. There is tremendous hatred between President Putin and President z.. And-- you know, I--
 >
-> Ross Douthat: Isn’t it more understandable coming from President z., given that his country was actually invaded?
+> Ross Douthat: Isn’t it more understandable coming from President Z, given that his country was actually invaded?
 >
 > President Donald Trump: Well, it is. But when they had their first meeting there was great disrespect shown to Russia. So I’m not gonna say anything--
 >
