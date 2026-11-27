@@ -52,13 +52,13 @@ This is [the wolf](https://golos.ua/news/v-stolychnom-botanycheskom-sadu-zametyl
 
 ---
 
-In related news, Serhiy Leshchenko found himself in a mood to write something *moving* and [once again](https://abdymok.substack.com/p/ukraines-goat-with-teeth) had the unmitigated fucking gall to [repurpose z.’s failures](https://abdymok.substack.com/p/zelenskys-new-clothes) into *content,* flattering himself as one who cares while *movingly* reminding the audience that it’s okay now to feel good about Ukraine and its vague ambitions for progress.
+In related news, Serhiy Leshchenko found himself in a mood to write something *moving* and [once again](https://abdymok.substack.com/p/ukraines-goat-with-teeth) had the unmitigated fucking gall to [repurpose Z’s failures](https://abdymok.substack.com/p/zelenskys-new-clothes) into *content,* flattering himself as one who cares while *movingly* reminding the audience that it’s okay now to feel good about Ukraine and its vague ambitions for progress.
 
 [Image]
 
 That anyone *anywhere* is so stupid as to take this laughable piece of shit seriously, with his deranged fantasies about de-oligarchization, his bizarrely punctuated bullshit on behalf of those whose plan for Ukraine’s “security” is a [brief winter](https://www.facebook.com/abdymok/posts/4660129697414964?notif_id=1641314759783685&notif_t=feedback_reaction_generic&ref=notif) *[відпочинок](https://www.facebook.com/abdymok/posts/4660129697414964?notif_id=1641314759783685&notif_t=feedback_reaction_generic&ref=notif)* in Bukovel, is beyond me.
 
-Serhiy, like [Iuliia,](https://abdymok.substack.com/p/weightless-self-promotion) is thriving today, thanks to the *new* Kyiv Post’s ground glass editorial policy devised to delight only a handful of people. Looking on the bright side, the man they are paid to apologize for – the twitching chimp that is z. *fils –* is unlikely to regain popularity thanks to op-eds published in any language anywhere, that is, unless Russia mounts a full-scale invasion.
+Serhiy, like [Iuliia,](https://abdymok.substack.com/p/weightless-self-promotion) is thriving today, thanks to the *new* Kyiv Post’s ground glass editorial policy devised to delight only a handful of people. Looking on the bright side, the man they are paid to apologize for – the twitching chimp that is Z *fils –* is unlikely to regain popularity thanks to op-eds published in any language anywhere, that is, unless Russia mounts a full-scale invasion.
 
 ---
 
@@ -126,7 +126,7 @@ Whatever. Carousing is not only a key to Special Operations success but is also 
 **Tony’s schedule in Kyiv on Wednesday:**
 
 - 10.45 - U.S. Embassy pow wow w/ staff
-- 12:30 - Chit chat w/ z.
+- 12:30 - Chit chat w/ Z
 - 14:00 - Chit chat w/ FM
 - 15:30 - Press conference w/ FM
 
@@ -138,7 +138,7 @@ Whatever. Carousing is not only a key to Special Operations success but is also 
 - UK starts supplying Ukraine w/ anti-tank weapons. ([link](https://bit.ly/3FB5xVx))
 - Russia blamed for massive cyber-attack. ([link](https://www.theguardian.com/world/2022/jan/16/ukraine-says-evidence-points-to-russia-being-behind-cyber-attack))
 - Lukashenko invites Russia for joint military exercises in Feb. ([link](https://www.belta.by/president/view/lukashenko-rasskazal-kogda-i-gde-budut-provedeny-sovmestnye-voennye-uchenija-s-rossiej-479773-2022/))
-- Blinken chats up z. in Kyiv. ([link](https://zn.ua/POLITICS/zavtra-v-ukrainu-pribudet-hossekretar-ssha-entoni-blinken-znua.html))
+- Blinken chats up Z in Kyiv. ([link](https://zn.ua/POLITICS/zavtra-v-ukrainu-pribudet-hossekretar-ssha-entoni-blinken-znua.html))
 - Poroshenko restraint hearing resumes. ([link](https://www.pravda.com.ua/articles/2022/01/17/7320690/))
 
 ---
@@ -242,7 +242,7 @@ Radzikhovsky says this could explain Putin’s threat to cut Ukraine into little
 
 The [disclosure](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=newssearch&cd=&cad=rja&uact=8&ved=2ahUKEwjbyNT_gtn1AhW8h_0HHcqxAioQxfQBKAB6BAgOEAI&url=https%3A%2F%2Fwww.reuters.com%2Fworld%2Feurope%2Fexclusive-russia-moves-blood-supplies-near-ukraine-adding-us-concern-officials-2022-01-28%2F&usg=AOvVaw3NsuuWaZqMX2-4rrryHC95) on January 28, 2022 about blood supplies by U.S. officials, speaking on condition of anonymity, came amid growing warnings that Russia could be preparing for a further invasion as it massed more than 100,000 soldiers on its border with Ukraine.
 
-Just one day earlier, President Volodymyr z. had played down reports of an imminent - or inevitable - attack. Speaking in incoherent sentences to foreign journalists at the President’s Office in Kyiv, he said Russia’s military build-up was *less* threatening than similar deployments made in early 2021.
+Just one day earlier, President Volodymyr Z had played down reports of an imminent - or inevitable - attack. Speaking in incoherent sentences to foreign journalists at the President’s Office in Kyiv, he said Russia’s military build-up was *less* threatening than similar deployments made in early 2021.
 
 The Pentagon previously acknowledged the deployment of “medical support” as part of Russia’s buildup. But the delivery of blood supplies and medical equipment to military field hospitals, a key indicator of military readiness, grabbed headlines.
 
@@ -258,7 +258,7 @@ The Pentagon previously acknowledged the deployment of “medical support” as 
 
 ---
 
-Oleksiy Sorokin, political editor of the newly created [Kyiv Independent](https://kyivindependent.com/), chimed in on Twitter, accusing U.S. officials of making ordinary Ukrainians nervous. He tweeted about z.’s displeasure with foreign news coverage of Ukraine.
+Oleksiy Sorokin, political editor of the newly created [Kyiv Independent](https://kyivindependent.com/), chimed in on Twitter, accusing U.S. officials of making ordinary Ukrainians nervous. He tweeted about Z’s displeasure with foreign news coverage of Ukraine.
 
 ---
 
@@ -308,7 +308,7 @@ So far, the moral of this story is that U.S. military intelligence may not be pr
 
 ---
 
-In the old parable about a group of blind men trying to describe an elephant, each man can only feel a specific part of the animal, and so their descriptions of it are accurate, but still fail to capture the reality. Ukrainian President Volodymyr z.’s 80-minute [briefing](https://www.youtube.com/watch?v=F1Sij7oHPvg) for the foreign press in Kyiv on January 28 was not unlike that elephant.
+In the old parable about a group of blind men trying to describe an elephant, each man can only feel a specific part of the animal, and so their descriptions of it are accurate, but still fail to capture the reality. Ukrainian President Volodymyr Z’s 80-minute [briefing](https://www.youtube.com/watch?v=F1Sij7oHPvg) for the foreign press in Kyiv on January 28 was not unlike that elephant.
 
 Depending on your perspective, it was either a ***disaster*** or a ***catastrophe***.
 
@@ -320,13 +320,13 @@ That same evening, the fourth American cargo plane with lethal military supplies
 
 Mykhailo Podoliak, an adviser to the head of the President’s Office, thinks the president’s messaging has been brilliant.
 
-> "The political and media discussion around the threat of a new escalation in Eastern Europe is finally getting rid of excessive emotions. We see that even White House Spokeswoman Psaki said it was a mistake to use the word "inevitably" ["неминуче"] in relation to the threat of escalation. This is an important diplomatic result, thanks to the activity of President z.," he said on February 3 in an [interview](https://interfax.com.ua/news/political/795909.html) with Interfax-Ukraine.
+> "The political and media discussion around the threat of a new escalation in Eastern Europe is finally getting rid of excessive emotions. We see that even White House Spokeswoman Psaki said it was a mistake to use the word "inevitably" ["неминуче"] in relation to the threat of escalation. This is an important diplomatic result, thanks to the activity of President Z," he said on February 3 in an [interview](https://interfax.com.ua/news/political/795909.html) with Interfax-Ukraine.
 
 Not so fast, Mykhailo. Psaki [said](https://www.politico.com/news/2022/02/02/white-house-not-using-imminent-russia-threat-00004820) she would stop using the word “imminent” **(not “inevitable” or “inevitably”)** to describe Russia’s possible further invasion of Ukraine.
 
 [Image]
 
-To make a long story short, z., Podoliak and Google Translate misunderstood the meaning that the words “imminent” or “inevitable” trigger.
+To make a long story short, Z, Podoliak and Google Translate misunderstood the meaning that the words “imminent” or “inevitable” trigger.
 
 Psaki did not.
 
@@ -390,7 +390,7 @@ Indeed, Putin has been especially boorish this week, blurting out after a beano 
 
 ---
 
-CNN’s Nathan Hodge [writes](https://edition.cnn.com/2022/02/08/europe/putin-coarse-remarks-ukraine-intl/index.html) that Putin’s crude vernacular, “addressing z. in condescending and gendered language,” left some journalists scratching their heads.
+CNN’s Nathan Hodge [writes](https://edition.cnn.com/2022/02/08/europe/putin-coarse-remarks-ukraine-intl/index.html) that Putin’s crude vernacular, “addressing Z in condescending and gendered language,” left some journalists scratching their heads.
 
 [Image]
 
@@ -404,11 +404,11 @@ Ukraine’s president didn’t think the Russian leader’s crude comments were 
 
 Meh.
 
-Russian publicist Aleksandr Nevzorov [said](https://echo.msk.ru/programs/nevsredy/2977052-echo/) z.’s response was *pathetic*.
+Russian publicist Aleksandr Nevzorov [said](https://echo.msk.ru/programs/nevsredy/2977052-echo/) Z’s response was *pathetic*.
 
 [Image]
 
-Biden’s Spokeswoman Jen Psaki agreed that Putin’s rape joke was outrageous, but didn’t comment on z.’s meh response.
+Biden’s Spokeswoman Jen Psaki agreed that Putin’s rape joke was outrageous, but didn’t comment on Z’s meh response.
 
 [Image]
 
@@ -440,7 +440,7 @@ But the Anglo-Saxons decided to double the Kremlin stake and offered to play Rus
 
 In fact, so far the Americans are actively bombing Zhytomyr, making it a twin of Voronezh. Nothing in the past few years (excluding Russian aggression) has done more economic damage to Ukraine than the American "war on the doorstep" propaganda campaign. The closure of airspace over Ukraine, the refusal of Western insurance companies to work in Ukraine, the evacuation of embassies and the practical isolation of the country in a matter of weeks - I don’t understand who is under sanctions here? In the framework of the American game, Ukraine looks like even more of a bargaining chip in negotiations with the Russians than in the framework of the Franco-German shuttle diplomacy. This puts Ukraine in a very difficult position. In fact, objectively today everyone is playing against Ukraine.
 
-For Ukraine itself, in the current situation, the choice is extremely simplified to a crystal-clear dilemma - Finlandization or war? The possibility of balancing in the mystical "third dimension" between these two options is almost exhausted. The problem is that neither the elites of Ukraine nor the Ukrainian society were ready to make the final choice. The formula "War and peace" (in the Trotskyist interpretation of "Neither peace nor war") is no longer workable for z., and the formula "War or peace" is a political trap for him. Whatever he chooses, society will not approve.
+For Ukraine itself, in the current situation, the choice is extremely simplified to a crystal-clear dilemma - Finlandization or war? The possibility of balancing in the mystical "third dimension" between these two options is almost exhausted. The problem is that neither the elites of Ukraine nor the Ukrainian society were ready to make the final choice. The formula "War and peace" (in the Trotskyist interpretation of "Neither peace nor war") is no longer workable for Z, and the formula "War or peace" is a political trap for him. Whatever he chooses, society will not approve.
 
 Ukrainian society is at least skeptical about Finlandization. The frank recognition of defeat in the war with Russia and the pragmatic normalization of relations with the aggressor, which implies at least a temporary renunciation of attempts to regain control over the annexed territories, are equated in the public mind with a betrayal of national interests. In conditions when the national feeling is naked and under high tension, the "Don’t bring a knife to a gunfight” argument does not work well.
 
@@ -448,7 +448,7 @@ At the same time, the Finlandization in Ukraine is understood extremely primitiv
 
 Of course, there is another alternative to defeat - war. I consider it immoral and pointless to discuss the question of whether the Ukrainian society today is ready for a total war. But, even if we assume that it is ready, and even assume that this war will end in a peace that suits Ukraine, then with a huge degree of probability a total war will lead to a total exhaustion of the nation's forces and, most likely, will become a point of historical fracture, which will be very difficult to overcome. I note that we learned the real price of the victory of the USSR in World War II in 1991. One thing is clear today - Ukraine will have to fight against Russia alone, albeit with the military, financial and political support of the West.
 
-The West’s counterplay is objectively exerting more pressure on Ukraine today than on Russia. z. has less and less time to make a decision, and any clear decision will drastically complicate his plans for re-election for the next term. But it is not easy for Russia either, with minimal provocation it will be very difficult for it not to start a war, after which the carriage of Russian foreign policy will very quickly turn into a pumpkin. Western hesitation is the Kremlin's last hope. They are waiting for Macron and Scholz, on their part, by persuasion, and Biden and Johnson, with their provocations, to force z. to recognize the annexation of Crimea, which will allow Putin to pull his boots out of the rotten Crimean swamp. But if z. does not make any decision, no one will benefit.
+The West’s counterplay is objectively exerting more pressure on Ukraine today than on Russia. Z has less and less time to make a decision, and any clear decision will drastically complicate his plans for re-election for the next term. But it is not easy for Russia either, with minimal provocation it will be very difficult for it not to start a war, after which the carriage of Russian foreign policy will very quickly turn into a pumpkin. Western hesitation is the Kremlin's last hope. They are waiting for Macron and Scholz, on their part, by persuasion, and Biden and Johnson, with their provocations, to force Z to recognize the annexation of Crimea, which will allow Putin to pull his boots out of the rotten Crimean swamp. But if Z does not make any decision, no one will benefit.
 
 PS online: *While this article was waiting for a meeting with the reader, it became clear that massive "pressure on Russia" seems to be working against Ukraine. Ukraine’s ambassador to the UK spoke about the possibility of Ukraine's voluntary refusal to join NATO, if this helps to avoid a war with Russia...*
 
@@ -591,7 +591,7 @@ Dead white male Bohdan Nahaylo - working remotely from Barcelona - has published
 
 [Image]
 
-And then, rather as one keeps checking a  [cauliflower ear](https://www.webmd.com/cold-and-flu/ear-infection/why-does-ear-hurt) to see if it requires drainage, I took a boo at how CNN's Chief International Anchor Christiane Amanpour’s Q&A with z. turned out.
+And then, rather as one keeps checking a  [cauliflower ear](https://www.webmd.com/cold-and-flu/ear-infection/why-does-ear-hurt) to see if it requires drainage, I took a boo at how CNN's Chief International Anchor Christiane Amanpour’s Q&A with Z turned out.
 
 [Image]
 
@@ -689,7 +689,7 @@ Putin [spelled out](https://www.youtube.com/watch?v=tl2m6LVHY58) his demands les
 
 Practicing philosopher Vladimir Pastukhov [sums up](https://echo.msk.ru/blog/pastuhov_v/2983892-echo/) the current situation in his blog appearing on Echo Moscow as follows:
 
-> The Ukrainian drama is approaching an intermediate finale, in the style of which one can guess the choreography of the apotheosis of the cult Soviet ballet "Gayane" - "Saber Dance". All world actors have already stood in a circle and are actively waving their hands, simulating a fight. There are two soloists - Putin (evil genius) and z. (lyrical hero). The rest portray extras, holding a saber in their bosoms. It's annoying that the sabers are not fake. Such an energetic dance cannot be endless, because one of the actors will fall out of the circle in the coming days. If it’s Ukraine, the world will be plunged into “vile purulence,” but if it’s Russia, the world will be infused with “fresh blood."
+> The Ukrainian drama is approaching an intermediate finale, in the style of which one can guess the choreography of the apotheosis of the cult Soviet ballet "Gayane" - "Saber Dance". All world actors have already stood in a circle and are actively waving their hands, simulating a fight. There are two soloists - Putin (evil genius) and Z (lyrical hero). The rest portray extras, holding a saber in their bosoms. It's annoying that the sabers are not fake. Such an energetic dance cannot be endless, because one of the actors will fall out of the circle in the coming days. If it’s Ukraine, the world will be plunged into “vile purulence,” but if it’s Russia, the world will be infused with “fresh blood."
 
 ---
 
@@ -850,7 +850,7 @@ I’ll probably update this page throughout the course of Day 3. Shout-out to al
 
 **08:38: -** Orc column of 100 vehicles from Vyshhorod spotted in [Kozarovychi](https://www.google.com/maps/place/Kozarovychi,+Kyiv+Oblast,+07332/@50.5971772,30.1938333,10.25z/data=!4m5!3m4!1s0x472ad78749b49b7d:0x265234b0edc3fb54!8m2!3d50.7598969!4d30.3613898) [reportedly](https://censor.net/ru/news/3319316/so_storony_vyshgoroda_v_kiev_dvijetsya_vrajeskaya_kolonna_okolo_100_edinits_bronetehniki_na_ee_bortah) heading south towards Kyiv. Expect liquidation.
 
-**08:00 -** z., Podoliak post self-aggrandizing [vids](https://t.me/V_Zelenskiy_official), say everything 100% a-okay.
+**08:00 -** Z, Podoliak post self-aggrandizing [vids](https://t.me/V_Zelenskiy_official), say everything 100% a-okay.
 
 **06:52** - LIVE updates of the mess at [The New York Times](https://www.nytimes.com/live/2022/02/25/world/russia-ukraine-war), [CNN](https://edition.cnn.com/europe/live-news/ukraine-russia-news-02-25-22/index.html) and [WAPO](https://www.washingtonpost.com/world/2022/02/25/ukraine-invasion-russia-news/).
 
@@ -993,7 +993,7 @@ Wow! Talk about longevity.
 
 1. All the experience I have accumulated over almost forty years of work in the field of conflict resolution suggests that the success of any complex negotiation does not depend on the skill of the negotiators, their good or bad will, but on the presence or absence of a negotiating formula and negotiating position. If there are none, if before the start of negotiations at least one of the parties has not formulated a position that allows for the existence of points of contact, the negotiations are meaningless even if the mediator is the Pope or the Chief Rabbi.
 2. The second condition for successful negotiations is realism. In the current situation, realism presupposes an honest and courageous recognition of the fact that there is no negotiating formula for making peace between Russia and Ukraine today. It doesn't exist in principle. That is, if Crimea, Donbas, the neutral status of Ukraine, restitution, militarization, compensation, satisfaction and so on become the subject of discussion, negotiations can be curtailed immediately, because they will yield zero results. On all these issues, Russia and Ukraine, and more broadly, Russia and the West, are now unable to agree.
-3. The third indispensable condition for conducting any negotiations, with the exception of negotiations on complete and unconditional surrender, is to give both parties the opportunity to save face. This is triply important when it comes to negotiations between belligerent countries, where governments are backed by enraged masses warmed by bloodshed. The point is no longer what Putin and z. can agree on, but what the masses behind them can accept. Putin depends on the mood of the masses just as much as z., just the format is different. Neither one nor the other can sign anything that goes against the expectations of the masses. We have already seen this in Paris.
+3. The third indispensable condition for conducting any negotiations, with the exception of negotiations on complete and unconditional surrender, is to give both parties the opportunity to save face. This is triply important when it comes to negotiations between belligerent countries, where governments are backed by enraged masses warmed by bloodshed. The point is no longer what Putin and Z can agree on, but what the masses behind them can accept. Putin depends on the mood of the masses just as much as Z, just the format is different. Neither one nor the other can sign anything that goes against the expectations of the masses. We have already seen this in Paris.
 4. Based on these three conditions, the negotiation formula looks like a very narrow isthmus with an almost illusory possibility to walk on water “like on dry land.” Speech can and should be exclusively about the conditions of a truce, and not peace. This is the only more or less working window of opportunity. Stabilization of the situation here and now without even trying to give a hint as to the direction, timing or speed at which this conflict should be resolved. The limit of the possible is an armistice agreement, like with Japan, leaving all questions open, but allowing somehow to streamline humanitarian problems.
 5. The only point of discussion and, accordingly, the point of contact today can and should be humanitarian issues. Cessation of new killings, exchange of prisoners and corpses. The only way to save face is a tear on the cheek, even if it's a crocodile tear. Crocodiles also have children and even grandchildren. Leaving the humanitarian zone means the death of the negotiation process. There can be only one general thesis now - any ideas and ambitions, grievances and claims cannot be an excuse for the nightmare that resulted.
 6. From a practical point of view, the base can be agreements on a ceasefire and the withdrawal of Russian troops to positions before February 24, with the exception of the Russia-occupied areas of the Donetsk and Luhansk regions, which Russia unilaterally recognized as independent states and which in any case were not controlled by Ukraine until February 24. Everything else should be left for later. This is in the interests of Ukraine, which needs to save the lives of its citizens, and this does not contradict Putin’s concept of “fraternal peoples”: South and North Korea are generally one people, but they can only exist on opposite sides of the barbed wire.
@@ -1123,7 +1123,7 @@ It is at best linguistically irresponsible – at worst it is stupid journalisti
 
 So, edit problematic features out. Just spell it. This is war, for Chrissake, not a classroom at NYU. Use Google Maps for place names.
 
-Conserve letters: **Zaporizhia**. There’s no good reason to double up “***zh***s.” Don’t repeat “***y***s” in surnames, except Zelensk***yy*** — but not Zelensk***iy***, Zelensk***yi***. Maybe just write z., or Z. The same goes for “***i***s,” as in *[Iul](https://abdymok.substack.com/p/weightless-self-promotion?s=w)**[iia](https://abdymok.substack.com/p/weightless-self-promotion?s=w)** [[Mendel]](https://abdymok.substack.com/p/weightless-self-promotion?s=w)*. Her name is painful to look at, much less pronounce correctly, or even think about otherwise.
+Conserve letters: **Zaporizhia**. There’s no good reason to double up “***zh***s.” Don’t repeat “***y***s” in surnames, except Zelensk***yy*** — but not Zelensk***iy***, Zelensk***yi***. Maybe just write Z, or Z. The same goes for “***i***s,” as in *[Iul](https://abdymok.substack.com/p/weightless-self-promotion?s=w)**[iia](https://abdymok.substack.com/p/weightless-self-promotion?s=w)** [[Mendel]](https://abdymok.substack.com/p/weightless-self-promotion?s=w)*. Her name is painful to look at, much less pronounce correctly, or even think about otherwise.
 
 ---
 
@@ -1169,7 +1169,7 @@ Lots of bitching about Ramzan Kadyrov’s self-aggrandizing role in Russia’s b
 
 According to the letter, the blitzkrieg was poorly planned and has failed miserably.
 
-> It is simply impossible to complete the task now: Even if z. and the authorities had been captured in the first 1-3 days and all the key buildings in Kyiv had been seized…. and surrendered … What next? …With whom to negotiate?
+> It is simply impossible to complete the task now: Even if Z and the authorities had been captured in the first 1-3 days and all the key buildings in Kyiv had been seized…. and surrendered … What next? …With whom to negotiate?
 
 The author says leaders of Ukraine’s pro-Russia Opposition Platform - For Life party have be less than helpful.
 
@@ -1231,7 +1231,7 @@ Practicing London-based philosopher Vladimir Pastukhov has written another [prag
 >
 > In general, the president’s [latest public appearance](https://www.youtube.com/watch?v=EMsrcC67iTk) and strange entourage (surrounded by Amazons frozen like statues) does not add optimism. Although Putin tried to broadcast several conflicting signals to the outside world at once, reflecting the imbalance of the twilight state of his soul, the overall vector remains negative: We will bury you. This, of course, is Putin putting a brave face on an already awful situation. Nevertheless, purely theoretically, he still has a ghost of a chance to slip out of the mousetrap.
 >
-> z. has to keep in mind two objective circumstances: the ability and readiness of Russia to launch one or more limited-yield nuclear strikes with virtually impunity. The West’s position non-intervention under no circumstances has already been voiced, i.e., NATO's refusal to resolve the issue of a “no-fly” zone over Ukrainian skies, NATO proclamation that it is not a party to the conflict. Despite the resistance of the Ukrainian army and volunteer fighters against Russian invaders, which exceeds the wildest of expectations, the continuation of the war will lead to colossal casualties for the Ukrainian people. Therefore, despite all the atrocities Russia has already committed in Ukraine, z. has to think about the possibility of a compromise.
+> Z has to keep in mind two objective circumstances: the ability and readiness of Russia to launch one or more limited-yield nuclear strikes with virtually impunity. The West’s position non-intervention under no circumstances has already been voiced, i.e., NATO's refusal to resolve the issue of a “no-fly” zone over Ukrainian skies, NATO proclamation that it is not a party to the conflict. Despite the resistance of the Ukrainian army and volunteer fighters against Russian invaders, which exceeds the wildest of expectations, the continuation of the war will lead to colossal casualties for the Ukrainian people. Therefore, despite all the atrocities Russia has already committed in Ukraine, Z has to think about the possibility of a compromise.
 >
 > But Putin's situation is not the rosiest. He has about a month left before the effect of sanctions will hit home. It will no longer be possible to fully compensate for them (until Russian citizens, for the most part, understand what, in fact, all the talk is about). The information bubble about Russia’s pinpoint strikes on military targets and small casualties will begin to burst, and prolonging the conflict will disabuse people of the notion that Russia is waging a “war of liberation.” How Russia’s population will react to repackaging his “special military operation” into a war against the “Ukes” is difficult to predict.
 >
@@ -1328,13 +1328,13 @@ A quick boo at Ukraine’s Defense Intelligence Agency’s Telegram channel gets
 
 Which brings me to Kamala and Poland.
 
-The steeplechase of hacks making hay out of unspeakable tragedy now [involves](https://twitter.com/SeanPenn/status/1501603494725259264/photo/1) Sean Penn and greasy fuckpig Andriy Yermak. z. whined this morning about not getting MiG-29s fast enuf during his daily TikTok pep talk.
+The steeplechase of hacks making hay out of unspeakable tragedy now [involves](https://twitter.com/SeanPenn/status/1501603494725259264/photo/1) Sean Penn and greasy fuckpig Andriy Yermak. Z whined this morning about not getting MiG-29s fast enuf during his daily TikTok pep talk.
 
 [Radosław](https://www.facebook.com/radeksikorski/) has been mum, unless I missed something, the Pentagon [says](https://www.defense.gov/News/Releases/Release/Article/2960180/statement-by-pentagon-press-secretary-john-f-kirby-on-security-assistance-to-uk/) the deal is **dumb** and Austin calls the Polish proposal a [dead letter](https://www.nytimes.com/2022/03/09/us/politics/poland-fighter-jets-ukraine-russia.html). Rinse, repeat.
 
 [Image]
 
-Someone, please, pass on the info to z., Andriy and Sean.
+Someone, please, pass on the info to Z, Andriy and Sean.
 
 ---
 
@@ -1619,8 +1619,8 @@ Wednesday was quiet in Kyiv during the day. For the past week or so, the Russian
 
 - Ukraine’s SBU State Security Service [nabbed](https://kiev.vgorode.ua/news/sobytyia/a1200787-v-kieve-zaderzhali-svjashchennika-upts-kotoryj-sotrudnichal-so-spetssluzhbami-vraha) Onufriy the UOC (MP) priest for collaborating with Russian invaders. Caught him in his underpants.
 - Chechen fighters from the Sheikh Mansur Battalion began [mop-up-orc ops](https://t.me/The3rdForceUA/2654) in Kyiv suburbs.
-- Truth laboratory has denied reported rumors (by [FT, of course](https://www.ft.com/content/7b341e46-d375-4817-be67-802b7fa77ef1)) of a draft peace deal reached between z. and Putin. (cf. Pastukhov)
-- Unshaven z. addressed both houses of the U.S. Congress. I liked the last part of the [performance](https://www.youtube.com/watch?v=gGHFvfBThUY).
+- Truth laboratory has denied reported rumors (by [FT, of course](https://www.ft.com/content/7b341e46-d375-4817-be67-802b7fa77ef1)) of a draft peace deal reached between Z and Putin. (cf. Pastukhov)
+- Unshaven Z addressed both houses of the U.S. Congress. I liked the last part of the [performance](https://www.youtube.com/watch?v=gGHFvfBThUY).
 - The brother of a friend (and his wife) managed to escape Mariupol by car.
 - Successful tooth removal c/o Evhen.
 
@@ -1847,7 +1847,7 @@ We assume Tiger Team has gamed out [débâcle](https://www.merriam-webster.com/t
 
 ---
 
-Deputy Defense Minister Hanna Maliar tells us [here](https://www.facebook.com/ganna.maliar/posts/2115843938574637) what information we should not be sharing publicly. It’s the same Hanna who, along with z., instructed us in January [not to look up](https://abdymok.substack.com/p/teetering-on-the-edge-of-inanity?s=w).
+Deputy Defense Minister Hanna Maliar tells us [here](https://www.facebook.com/ganna.maliar/posts/2115843938574637) what information we should not be sharing publicly. It’s the same Hanna who, along with Z, instructed us in January [not to look up](https://abdymok.substack.com/p/teetering-on-the-edge-of-inanity?s=w).
 
 ---
 
@@ -2066,7 +2066,7 @@ Plan C - hold a referendum to incorporate the puppet state(s) within its Ukraine
 ###### **Mistakes ([from Day 11](https://abdymok.substack.com/p/day-11?s=w))**
 
 1. Putin's main mistake is that he was sure Ukrainians would not fight.
-2. z.'s main mistake is that he thought NATO would fight.
+2. Z's main mistake is that he thought NATO would fight.
 3. NATO’s main mistake is thinking it would not have to fight.
 
 ---
@@ -2180,11 +2180,11 @@ We should all be nicer to Ukraine experts. I try, but without much success. The 
 
 We know knowledge matters, but although we know that Americans who are avid TikTok users, for example, behave differently than those who don’t, it is less clear whether this difference stems from Gen Z putting its command of facts to good use, or from certain types of people with unhealthy news-consumption habits.
 
-The answer might explain why most Americans (72%) have a lot or some confidence in Ukrainian President Volodymyr z., higher than any other international leader asked about in a new Pew Research Center [survey](https://www.pewresearch.org/fact-tank/2022/03/30/zelenskyy-inspires-widespread-confidence-from-u-s-public-as-views-of-putin-hit-new-low/).
+The answer might explain why most Americans (72%) have a lot or some confidence in Ukrainian President Volodymyr Z, higher than any other international leader asked about in a new Pew Research Center [survey](https://www.pewresearch.org/fact-tank/2022/03/30/zelenskyy-inspires-widespread-confidence-from-u-s-public-as-views-of-putin-hit-new-low/).
 
 [Image]
 
-> Almost half of Americans ages 65 and older have *a* *lot* of confidence in z., compared with 28% of adults under 30. Americans with more education, especially those with postgraduate degrees, are also more inclined to have confidence in the Ukrainian president, the report [says](https://twitter.com/pewresearch).
+> Almost half of Americans ages 65 and older have *a* *lot* of confidence in Z, compared with 28% of adults under 30. Americans with more education, especially those with postgraduate degrees, are also more inclined to have confidence in the Ukrainian president, the report [says](https://twitter.com/pewresearch).
 
 The vast majority of Americans with poor geographic and foreign policy knowledge are the most supportive of z.. At the same time, less than 7% of those surveyed were able to find his country on a map. So it goes.
 
@@ -2206,7 +2206,7 @@ Which brings me to The Washington Post’s [editorial page](https://www.washingt
 
 The real appeal is the headline: after the original laugh, it might as well read *Lorem ipsum dolor sit amet....* Next stop, [Channel 7](https://7kanal.com.ua/), [Oprah](https://www.oprah.com/index.html) and The Washington Post’s [TikTok page](https://www.tiktok.com/@washingtonpost).
 
-And then there’s Andriy Yermak, the unexpected and unelected head of the President’s Office, who [believes](https://www.washingtonpost.com/opinions/2022/03/21/ukraine-zelenskyy-the-west-underestimated-our-bravery-russia-brutality-civilians/) z. is the “undisputed leader” of the “new world order.”
+And then there’s Andriy Yermak, the unexpected and unelected head of the President’s Office, who [believes](https://www.washingtonpost.com/opinions/2022/03/21/ukraine-zelenskyy-the-west-underestimated-our-bravery-russia-brutality-civilians/) Z is the “undisputed leader” of the “new world order.”
 
 [Image]
 
@@ -2221,7 +2221,7 @@ And then there’s Andriy Yermak, the unexpected and unelected head of the Presi
 [Image]
 *Photo by Mssrs: Aris Messinis, Alex Kent, Chris McGrath, Sergi Mykhalchuk*
 
-z.’s official [Telegram](https://t.me/V_Zelenskiy_official) posts photographs taken in all parts of Ukraine [daily](https://t.me/V_Zelenskiy_official/1037?single). So does the [Strategic Communications Department of the Armed Forces of Ukraine.](https://www.facebook.com/AFUStratCom)
+Z’s official [Telegram](https://t.me/V_Zelenskiy_official) posts photographs taken in all parts of Ukraine [daily](https://t.me/V_Zelenskiy_official/1037?single). So does the [Strategic Communications Department of the Armed Forces of Ukraine.](https://www.facebook.com/AFUStratCom)
 
 [Image]
 *Sunk somewhere near Sumy ( AFU Stratcom )*
@@ -2248,7 +2248,7 @@ Next up: “[Russian soldiers in Ukraine sabotaged own equipment, U.K. spy chief
 
 [Image]
 
-Indeed, although it’s much better than merely “extremely effective.” It’s fucking “[brilliant](https://abdymok.substack.com/p/lost-in-translation?s=w),” according to Mykhailo Podoliak, an adviser to Andriy Yermak, head of the President’s Office, who on March 21, 2022 [announced](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwjissiz7PH2AhWEgv0HHYm6CugQFnoECBUQAQ&url=https%3A%2F%2Fwww.washingtonpost.com%2Fopinions%2F2022%2F03%2F21%2Fukraine-zelenskyy-the-west-underestimated-our-bravery-russia-brutality-civilians%2F&usg=AOvVaw2_lWlaI24qmBDCyx2RM-Ck) in Meryl’s and Amy’s newspaper that z. is today **[The Leader of The New World Order](https://en.wikipedia.org/wiki/New_world_order_(politics))**. Yermak [doubled down](https://www.youtube.com/watch?v=5PSM7L33Zzg) on the wacko assertion days later in broken English during an interview with CNN’s Christian Amanpour.
+Indeed, although it’s much better than merely “extremely effective.” It’s fucking “[brilliant](https://abdymok.substack.com/p/lost-in-translation?s=w),” according to Mykhailo Podoliak, an adviser to Andriy Yermak, head of the President’s Office, who on March 21, 2022 [announced](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwjissiz7PH2AhWEgv0HHYm6CugQFnoECBUQAQ&url=https%3A%2F%2Fwww.washingtonpost.com%2Fopinions%2F2022%2F03%2F21%2Fukraine-zelenskyy-the-west-underestimated-our-bravery-russia-brutality-civilians%2F&usg=AOvVaw2_lWlaI24qmBDCyx2RM-Ck) in Meryl’s and Amy’s newspaper that Z is today **[The Leader of The New World Order](https://en.wikipedia.org/wiki/New_world_order_(politics))**. Yermak [doubled down](https://www.youtube.com/watch?v=5PSM7L33Zzg) on the wacko assertion days later in broken English during an interview with CNN’s Christian Amanpour.
 
 But I digress.
 
@@ -2285,9 +2285,9 @@ And finally there is Rhys, maybe a distant cousin, who is now on the record sayi
 
 ---
 
-According to [The Lime](https://apostrophe.ua/ua/article/lime/learn/2022-04-01/angel-hranitel-na-pleche-shon-penn-vo-lvove-teplo-podderjal-vladimira-zelenskogo/45129), Sean Penn called President Volodymyr z. "**the guardian angel of all democratic dreamers**“ in his latest Instagram post.
+According to [The Lime](https://apostrophe.ua/ua/article/lime/learn/2022-04-01/angel-hranitel-na-pleche-shon-penn-vo-lvove-teplo-podderjal-vladimira-zelenskogo/45129), Sean Penn called President Volodymyr Z "**the guardian angel of all democratic dreamers**“ in his latest Instagram post.
 
-Andriy Yermak, head of the President’s Office, [said](https://www.president.gov.ua/en/news/andrij-yermak-ukrayina-dovela-vsim-sho-ye-serjoznim-gravcem-74013) in an April Fools Day interview with [The New Yorker](https://www.newyorker.com/), [Bild](https://www.bild.de/adblockwall.html) and [Le Monde](https://www.lemonde.fr/) that z. has become “**the leader of the free world.**”
+Andriy Yermak, head of the President’s Office, [said](https://www.president.gov.ua/en/news/andrij-yermak-ukrayina-dovela-vsim-sho-ye-serjoznim-gravcem-74013) in an April Fools Day interview with [The New Yorker](https://www.newyorker.com/), [Bild](https://www.bild.de/adblockwall.html) and [Le Monde](https://www.lemonde.fr/) that Z has become “**the leader of the free world.**”
 
 Last week, he called him the “**undisputed leader**” of the “**new world order**” in [The Washington Post](https://www.washingtonpost.com/opinions/2022/03/21/ukraine-zelenskyy-the-west-underestimated-our-bravery-russia-brutality-civilians/).
 
@@ -2519,7 +2519,7 @@ Arkady straightens Mark out in this [analysis](https://www.youtube.com/watch?v=b
 
 Arkady asks an important question in the beginning of the chit chat:
 
-**Why didn’t z. & Co, at least, warn, if not evacuate, residents of towns north of the capital and in Kyiv/Cherkasy regions after CIA Director Robert Burns warned Ukraine’s top brass in person on January 12, 2022 that the Russians would launch a full-blown invasion, including from Belarus?**
+**Why didn’t Z & Co, at least, warn, if not evacuate, residents of towns north of the capital and in Kyiv/Cherkasy regions after CIA Director Robert Burns warned Ukraine’s top brass in person on January 12, 2022 that the Russians would launch a full-blown invasion, including from Belarus?**
 
 On March 6, Mykhailo Podoliak, advisor to Andriy Yermak, head of Ukraine’s Office of the President, admitted this was a mistake, starting at 46:20, in this [chit chat](https://www.youtube.com/watch?v=J5dn_dPXuIY).
 
@@ -2629,7 +2629,7 @@ The Kremlin’s anti-Ukraine campaign began to resemble Carlos Castaneda’s *[A
 
 [3](#footnote-anchor-3)
 
-There are two soloists - Putin (evil genius) and z. (lyrical hero). The rest portray extras, holding a saber in their bosoms. It's annoying that the sabers are not fake. ([Swing for a Ruble, Blow for a Penny](https://abdymok.substack.com/p/a-separate-reality?s=w). February 23, 2022)
+There are two soloists - Putin (evil genius) and Z (lyrical hero). The rest portray extras, holding a saber in their bosoms. It's annoying that the sabers are not fake. ([Swing for a Ruble, Blow for a Penny](https://abdymok.substack.com/p/a-separate-reality?s=w). February 23, 2022)
 
 [4](#footnote-anchor-4)
 
@@ -2671,7 +2671,7 @@ And here’s another map:
 
 [1](#footnote-anchor-1)
 
-"The political and media discussion around the threat of a new escalation in eastern Europe is finally getting rid of excessive emotions. We see that even White House Spokeswoman Psaki said it was a mistake to use the word "inevitably" ["неминуче"] in relation to the threat of escalation. This is an important diplomatic result, thanks to the activity of President z.," he said on February 3 in an [interview](https://interfax.com.ua/news/political/795909.html) with Interfax-Ukraine. ([Lost in Translation](https://abdymok.substack.com/p/lost-in-translation?s=w), February 4, 2022)
+"The political and media discussion around the threat of a new escalation in eastern Europe is finally getting rid of excessive emotions. We see that even White House Spokeswoman Psaki said it was a mistake to use the word "inevitably" ["неминуче"] in relation to the threat of escalation. This is an important diplomatic result, thanks to the activity of President Z," he said on February 3 in an [interview](https://interfax.com.ua/news/political/795909.html) with Interfax-Ukraine. ([Lost in Translation](https://abdymok.substack.com/p/lost-in-translation?s=w), February 4, 2022)
 
 [2](#footnote-anchor-2)
 
@@ -2871,15 +2871,15 @@ That is, the option to become the mistress of the sea, and to have the Goldfish 
 
 ##### Technology of war and peace
 
-My working hypothesis is that peace or at least a truce in the war between Russia and Ukraine is possible under the existing circumstances only when the political cost of war for both sides is higher than the price of peace. So far, for both Putin and z., this is not the case. Putin managed to awaken the instinct of war among the masses, thanks to which he was able to enlist the support of a significant part of the population (how and why is the topic of a separate study, but this fact itself is now disputed by no one). But z. has managed to garner just as much, if not more, support. For Ukraine, the war took on the character of a people’s and liberation war, which turned out to be a complete surprise for the Kremlin and exponentially increased the resistance of the Ukrainian army. As a result, we have all the prerequisites for a bloody and protracted conflict.
+My working hypothesis is that peace or at least a truce in the war between Russia and Ukraine is possible under the existing circumstances only when the political cost of war for both sides is higher than the price of peace. So far, for both Putin and Z, this is not the case. Putin managed to awaken the instinct of war among the masses, thanks to which he was able to enlist the support of a significant part of the population (how and why is the topic of a separate study, but this fact itself is now disputed by no one). But Z has managed to garner just as much, if not more, support. For Ukraine, the war took on the character of a people’s and liberation war, which turned out to be a complete surprise for the Kremlin and exponentially increased the resistance of the Ukrainian army. As a result, we have all the prerequisites for a bloody and protracted conflict.
 
-At the same time, the support of the population of both countries for the policy of war for both presidents, although for different reasons, is still not unlimited. The population of Russia “signed up” for a small victorious war, one in which you can earn some extra money (in the broadest sense of the word). The option of another patriotic war with hardships and trials that stretches on for years is not envisaged by this political mandate. For z., on the other hand, the window of opportunity for peace with each new Bucha shrinks to the size of an embrasure from which a sawed-off shotgun sticks out. Yet at the same time, Ukraine’s human and economic resources, even with Western assistance, are insufficient for a long and exhausting war with an adversary like Russia. So there are prerequisites for a compromise. The only question is where and when these lines will cross. The probability of this or that scenario depends on the intersection point.
+At the same time, the support of the population of both countries for the policy of war for both presidents, although for different reasons, is still not unlimited. The population of Russia “signed up” for a small victorious war, one in which you can earn some extra money (in the broadest sense of the word). The option of another patriotic war with hardships and trials that stretches on for years is not envisaged by this political mandate. For Z, on the other hand, the window of opportunity for peace with each new Bucha shrinks to the size of an embrasure from which a sawed-off shotgun sticks out. Yet at the same time, Ukraine’s human and economic resources, even with Western assistance, are insufficient for a long and exhausting war with an adversary like Russia. So there are prerequisites for a compromise. The only question is where and when these lines will cross. The probability of this or that scenario depends on the intersection point.
 
 ##### Scenario 1: Cremation
 
 Cremation is an unlikely, but still real scenario for a radical and rapid evolution of the situation from bad to worse and catastrophic. One of the likely prerequisites for such a development of events could be the strategic defeat of the Ukrainian army, either as a result of mistakes made by its military commanders, or as a result of the use of weapons of mass destruction by Russia (general mobilization in Russia and the transition to scorched earth tactics and total war could have a similar effect). This extremely unlikely scenario could lead to the full occupation of Ukraine, which would be a real fiasco for the Putin regime.
 
-With a high degree of probability, it can be assumed that defeated remnants of the Ukrainian army would flee to Poland and other neighboring countries, z. or his successor would organize a Ukrainian government in exile, and a guerrilla war of unprecedented proportions would begin in a devastated and weaponized country. The sanctions regime would reach its apogee, but at the same time, Russia would, at its own expense and in complete isolation, have to somehow restore the economy of Ukraine. This is a trap, and to get out of it, the Kremlin will need to raise the stakes further. Having swallowed Moldova and Georgia, not covered by a nuclear umbrella, Russia will quickly face a fundamental choice: either to admit defeat, or to be drawn into a direct military conflict with NATO, with a likely exit into a nuclear apocalypse. That is, the achievement by the Kremlin of all its cherished goals in this war is the most provocative scenario in which, in the next iteration, the world becomes hostage to the suicidal syndrome of the Kremlin’s wise men, who are ready to self-immolate and burn others alive in an atomic crematorium.
+With a high degree of probability, it can be assumed that defeated remnants of the Ukrainian army would flee to Poland and other neighboring countries, Z or his successor would organize a Ukrainian government in exile, and a guerrilla war of unprecedented proportions would begin in a devastated and weaponized country. The sanctions regime would reach its apogee, but at the same time, Russia would, at its own expense and in complete isolation, have to somehow restore the economy of Ukraine. This is a trap, and to get out of it, the Kremlin will need to raise the stakes further. Having swallowed Moldova and Georgia, not covered by a nuclear umbrella, Russia will quickly face a fundamental choice: either to admit defeat, or to be drawn into a direct military conflict with NATO, with a likely exit into a nuclear apocalypse. That is, the achievement by the Kremlin of all its cherished goals in this war is the most provocative scenario in which, in the next iteration, the world becomes hostage to the suicidal syndrome of the Kremlin’s wise men, who are ready to self-immolate and burn others alive in an atomic crematorium.
 
 ##### Scenario 2: Recycling
 
@@ -3021,7 +3021,7 @@ In such a system of government, Putin has been gradually transformed into a pass
 
 [Image]
 
-Oh, and the White House has minted up z. [commemorative coins](https://www.whitehousegiftshop.com/President-Volodymyr-Zelenskyy-Addresses-Congress-p/zelenskyy-congress.htm). They cost $100 a pop.
+Oh, and the White House has minted up Z [commemorative coins](https://www.whitehousegiftshop.com/President-Volodymyr-Zelenskyy-Addresses-Congress-p/zelenskyy-congress.htm). They cost $100 a pop.
 
 ---
 
@@ -3206,7 +3206,7 @@ Keir analyzes Putin’s [off-ramp possibilities](https://bit.ly/36Ajw2q).
 
 [Image]
 
-We should probably remember that pre-invasion z. was a zero and Ukraine was a sham democracy[2](#footnote-2). So, lots of hard work ahead.
+We should probably remember that pre-invasion Z was a zero and Ukraine was a sham democracy[2](#footnote-2). So, lots of hard work ahead.
 
 [1](#footnote-anchor-1)
 
@@ -3381,7 +3381,7 @@ We all remember Mark, who was the one walking around with the [big green map](ht
 
 [Image]
 
-To make a long story short, Ukraine decided not to trust U.S. intelligence about Russia’s plan to invade in October, November, December, January and the first half of February. z. and his new defense minister downplayed the invasion threat deliberately, so ordinary Ukrainians would not panic, flee and tank the economy[1](#footnote-1).
+To make a long story short, Ukraine decided not to trust U.S. intelligence about Russia’s plan to invade in October, November, December, January and the first half of February. Z and his new defense minister downplayed the invasion threat deliberately, so ordinary Ukrainians would not panic, flee and tank the economy[1](#footnote-1).
 
 [One of the nice aspects about Substack’s CMS is the absence of the search function, which would help me remember all the times I scratched my head in disbelief whenever Ukrainian officials said an invasion by Russia was unlikely[2](#footnote-2).]
 
@@ -3405,7 +3405,7 @@ Nothing that a quick run won’t cure.
 
 [2](#footnote-anchor-2)
 
-President Volodymyr z. had played down reports of an imminent — or inevitable — attack. Speaking in incoherent sentences to foreign journalists at the President’s Office in Kyiv, he said Russia’s military build-up was *less* threatening than similar deployments made in early 2021. [On the Edge of Inanity](https://abdymok.substack.com/p/teetering-on-the-edge-of-inanity?s=w) (January 30, 2022)
+President Volodymyr Z had played down reports of an imminent — or inevitable — attack. Speaking in incoherent sentences to foreign journalists at the President’s Office in Kyiv, he said Russia’s military build-up was *less* threatening than similar deployments made in early 2021. [On the Edge of Inanity](https://abdymok.substack.com/p/teetering-on-the-edge-of-inanity?s=w) (January 30, 2022)
 
 [3](#footnote-anchor-3)
 
@@ -3496,7 +3496,7 @@ The loud explosion you heard yesterday evening was a cruise missile crashing int
 
 [Image]
 
-Mykhailo Podoliak, adviser to the head of the President’s Office Andriy Yermak, [said on Twitter](https://twitter.com/Podolyak_M/status/1519734791041605635) that the missile landed just kilometers from where z. had been minutes earlier chatted up U.N. Secretary General António Guterres.
+Mykhailo Podoliak, adviser to the head of the President’s Office Andriy Yermak, [said on Twitter](https://twitter.com/Podolyak_M/status/1519734791041605635) that the missile landed just kilometers from where Z had been minutes earlier chatted up U.N. Secretary General António Guterres.
 
 > “Why does Russia have a seat on the U.N. Security Council?” he asked.
 
@@ -3509,7 +3509,7 @@ Most responses were as idiotic as Podoliak’s rhetorical question. In fact, the
 
 I liked Anderson’s slice-of-kyiv-bomb-shelter-life [piece](https://edition.cnn.com/videos/world/2022/04/29/ukrainian-woman-olena-gnes-intv-part-one-ac360-vpx.cnn) :-)
 
-I’ve been in a couple of basement bomb shelters, but I haven’t slept in one yet. That’s because the steel door of my apartment protects me from the kill zone. I started avoiding doorways[1](#footnote-1) after CIA Director William Burns personally briefed z. in Kyiv about Putin’s plans to invade from Belarus and capture Kyiv.
+I’ve been in a couple of basement bomb shelters, but I haven’t slept in one yet. That’s because the steel door of my apartment protects me from the kill zone. I started avoiding doorways[1](#footnote-1) after CIA Director William Burns personally briefed Z in Kyiv about Putin’s plans to invade from Belarus and capture Kyiv.
 
 ---
 
@@ -3532,7 +3532,7 @@ In other news, WAPO columnist David Ignatius [informs us](https://www.washington
 
 [2](#footnote-anchor-2)
 
-I find myself veering away from the usual disjointed diplomatic bushwa about the coup d’etat announced by President Volodymyr z. last week and concentrating on the increasingly probable all-out Russian invasion heralded by the masters of military boosterism. [Status Quo Dum Milito](https://abdymok.substack.com/p/status-quo-dum-milito?s=w) (December 3, 2021)
+I find myself veering away from the usual disjointed diplomatic bushwa about the coup d’etat announced by President Volodymyr Z last week and concentrating on the increasingly probable all-out Russian invasion heralded by the masters of military boosterism. [Status Quo Dum Milito](https://abdymok.substack.com/p/status-quo-dum-milito?s=w) (December 3, 2021)
 
 [3](#footnote-anchor-3)
 
@@ -3999,7 +3999,7 @@ Jim, who has been stumbling around the contact line for two months, has [announc
 
 ---
 
-Dozens of gas-guzzling sedans ferried courageous U.S. diplomats to the second largest American embassy in Europe on May 8, 2022. They’ll be on hand for whatever dog and pony show z. & Co. have planned for V-day celebrations.
+Dozens of gas-guzzling sedans ferried courageous U.S. diplomats to the second largest American embassy in Europe on May 8, 2022. They’ll be on hand for whatever dog and pony show Z & Co. have planned for V-day celebrations.
 
 ---
 
@@ -4287,7 +4287,7 @@ In other news, Peter Coy at The New York Times assembled this [collection of wor
 
 [Image]
 
-Actually, no. z. for months refused to act on repeated warnings that Vova had decided to decapitate Kyiv[2](#footnote-2). **Ukrainians rallied z.** *after* Russia’s all-out invasion began.
+Actually, no. Z for months refused to act on repeated warnings that Vova had decided to decapitate Kyiv[2](#footnote-2). **Ukrainians rallied z.** *after* Russia’s all-out invasion began.
 
 Coy’s column reminded me of what Olga Rudenko [opined](https://www.nytimes.com/2022/02/21/opinion/ukraine-russia-zelensky-putin.html?searchResultPosition=1) on February 21, 2022.
 
@@ -4365,11 +4365,11 @@ Ukraine’s first wartime foreign minister and Tony again met on Sunday in Berli
 
 War, poverty, stupidity and disease have prevented Ukraine from realizing its full potential since since at least 2019, with poor judgment and comprehension, among other mental limitations, leading to a series of grotesque and more or less self-inflicted failures in democratic governance and foreign relations.
 
-Tiger Team[1](#footnote-1) in November, December, January and February informed Ukraine’s leaders, Dmytro included, that Putin intended to launch an all-out invasion and decapitate Kyiv. Central Intelligence Agency Director William Burns even met with z. in the capital to brief him in person about the Kremlin’s plans[2](#footnote-2).
+Tiger Team[1](#footnote-1) in November, December, January and February informed Ukraine’s leaders, Dmytro included, that Putin intended to launch an all-out invasion and decapitate Kyiv. Central Intelligence Agency Director William Burns even met with Z in the capital to brief him in person about the Kremlin’s plans[2](#footnote-2).
 
 Yet two weeks later, the president summoned foreign journalists to his office to play down the possibility of an imminent - or inevitable - attack. He said Russia’s military build-up was *less* threatening than similar deployments made a year earlier[3](#footnote-3).
 
-z.’s pow wow with the William took place a month after the husband of the president’s body woman and personal aide was busted for throwing a temper tantrum after police stopped his caravan near a checkpoint in eastern Ukraine[4](#footnote-4).
+Z’s pow wow with the William took place a month after the husband of the president’s body woman and personal aide was busted for throwing a temper tantrum after police stopped his caravan near a checkpoint in eastern Ukraine[4](#footnote-4).
 
 Which brings me to Kyrylo and Dominic and their [EXCLUSIVE](https://www.youtube.com/watch?v=MZbm5DvMw8w&t=6s) scream for attention aired on May 13 by Sky News.
 
@@ -4898,7 +4898,7 @@ It took until Day 94 (Day 20, Phase 3) of fascist Russia’s genocidal campaign 
 
 [Image]
 
-Unfortunately for Ukraine, [Andriy Taran](https://en.wikipedia.org/wiki/Andriy_Taran) was defense minister at the time and Tony had a tough time convincing z. to take Tiger Team seriously. Top Ukrainian officials, including the president, in November, December and January played down the threat of a Russian invasion publicly, even after William visited Kyiv to warn them in person that it was inevitable and likely imminent[1](#footnote-1).
+Unfortunately for Ukraine, [Andriy Taran](https://en.wikipedia.org/wiki/Andriy_Taran) was defense minister at the time and Tony had a tough time convincing Z to take Tiger Team seriously. Top Ukrainian officials, including the president, in November, December and January played down the threat of a Russian invasion publicly, even after William visited Kyiv to warn them in person that it was inevitable and likely imminent[1](#footnote-1).
 
 Which reminds me of this act of Ukrainian diplomatic finesse [earlier this month](https://www.washingtonpost.com/world/2022/05/03/germany-olaf-scholz-ukraine-zelensky-steinmeier/):
 
@@ -5149,7 +5149,7 @@ Mykola, also known as The Pork Chop from Obolon[1](#footnote-1), hasn’t popped
 
 Mykola and Serhiy. Together. Again. What could go wrong?
 
-Two years ago, I wrote that under z. Ukraine was a sham democracy, a primitive post-Soviet feudal autocracy not underpinned by elections or coordinated work of institutions, but by popular uprisings. Absent them, even the illusion of tolerance would not exist[2](#footnote-2).
+Two years ago, I wrote that under Z Ukraine was a sham democracy, a primitive post-Soviet feudal autocracy not underpinned by elections or coordinated work of institutions, but by popular uprisings. Absent them, even the illusion of tolerance would not exist[2](#footnote-2).
 
 I wonder how — or if — the war is changing that.
 
@@ -5359,7 +5359,7 @@ Z ducks the question in his interview with ZDF about why Ukraine failed to heed 
 
 > **[ZDF heute journal](https://www.zdf.de/nachrichten/politik/ukraine-praesident-selenskyj-interview-zdf-heute-journal-100.html):** Biden said he warned you that Russia planned to invade, but you didn't want to hear it…
 >
-> **z.:** I believe that the Ukrainian side should ask a question, and it should be addressed to many European leaders, as well as to America’s leader. As Ukraine’s leader, it would have been fair if I had been listened to in advance [of Russia’s invasion], and if they had heeded what we warned them about.
+> **Z:** I believe that the Ukrainian side should ask a question, and it should be addressed to many European leaders, as well as to America’s leader. As Ukraine’s leader, it would have been fair if I had been listened to in advance [of Russia’s invasion], and if they had heeded what we warned them about.
 >
 > I mean about imposing pre-emptive sanctions so the war wouldn’t start. Our strategy for the Black Sea, building a Black Sea Fleet with a partner country. We suggested a plan, we said that Russia would block the Black Sea.
 >
@@ -5505,7 +5505,7 @@ Here’s a [quick translation](https://t.me/v_pastukhov/261) of what he opined y
 
 [1](#footnote-anchor-1)
 
-[Byron, Shelley, and Now z.](https://www.theatlantic.com/books/archive/2022/06/zelensky-byronic-hero-our-times/661331/). The Atlantic (June 18, 2022)
+[Byron, Shelley, and Now Z](https://www.theatlantic.com/books/archive/2022/06/zelensky-byronic-hero-our-times/661331/). The Atlantic (June 18, 2022)
 
 [2](#footnote-anchor-2)
 
@@ -5861,13 +5861,13 @@ Z’s speechwriter offered a weird response.
 
 [Image]
 
-> “But God has his plan. If it’s up to us to defeat the Dragon, in whose presence half the world trembles in fear, if it’s our role to be the **underdog** who continues fighting more than four months, even though people expected the Dragon to defeat us in three days, then we’re up to this task,” z. [said](https://www.instagram.com/p/CfuV1rRDh3v/?hl=en).
+> “But God has his plan. If it’s up to us to defeat the Dragon, in whose presence half the world trembles in fear, if it’s our role to be the **underdog** who continues fighting more than four months, even though people expected the Dragon to defeat us in three days, then we’re up to this task,” Z [said](https://www.instagram.com/p/CfuV1rRDh3v/?hl=en).
 
 **What?**
 
 Evgeny Schwartz’s play Дракон ([The Dragon](https://a7sharp9.com/dragon.htm), 1943) is a story about the good knight Lancelot challenging and, despite huge odds, eventually killing the Dragon that has terrorized a town for 400 years — an allegory of Nazism and its ultimate defeat, although it later came to be interpreted as a sign that the Dragon of Stalinism had been destroyed. Mark Zakharov’s Убить Дракона ([To Kill the Dragon](https://en.wikipedia.org/wiki/To_Kill_a_Dragon), 1989) takes it one step further, suggesting the destruction of the whole Soviet system.
 
-So now z. is Lancelot and Putin is the Dragon?
+So now Z is Lancelot and Putin is the Dragon?
 
 If I understand correctly, the night-vision goggles, HIMARS, Baretta machine guns, counterbattery radar systems and sniper rifles received by Z’s Beautiful Maiden are allegorical representations of the various gifts — magic carpet, invisibility cap, energy drinks, etc — the handlers in Schwartz’s play bestowed on Lancelot.
 
@@ -6013,12 +6013,12 @@ More about ATN [here](https://techiia.com/news/fundaciya-techiya-pridbala-smart-
 
 No one knows what Ivan Bakanov actually did as head of Ukraine’s State Security Service, but we all suspected he wasn’t very good at it.
 
-The same goes for Ukraine’s top cop, Iryna Venedyktova, whom z. sacked the same day.
+The same goes for Ukraine’s top cop, Iryna Venedyktova, whom Z sacked the same day.
 
 [Image]
 *Despite flattering coverage in the Kyiv Post, Prosecutor General Iryna Venedyktova was sacked on July 17, 2022*
 
-Venedyktova did not fix the Prosecutor General’s Office or root out endemic corruption. She instead spent a lot of time harassing former President Petro Poroshenko and z.’s critics, including the puppy-dog editor of the Kyiv Post with the gruff exterior, who was forced to publish glowing articles about her hard work[1](#footnote-1)[2](#footnote-2).
+Venedyktova did not fix the Prosecutor General’s Office or root out endemic corruption. She instead spent a lot of time harassing former President Petro Poroshenko and Z’s critics, including the puppy-dog editor of the Kyiv Post with the gruff exterior, who was forced to publish glowing articles about her hard work[1](#footnote-1)[2](#footnote-2).
 
 In other news, Natasha from Fred’s dream factory ISW [babbles](https://www.pravda.com.ua/articles/2022/07/18/7358659/) about what Russia’s further invasion plans might be. We all recall ISW’s pre-invasion assessment of Putin as a rational actor and the war-adjacent content milling of other Beltway-based experts[3](#footnote-3).
 
@@ -6310,7 +6310,7 @@ The moral of the story is that endorphins do not pass the blood-brain barrier. T
 
 [2](#footnote-anchor-2)
 
-[A Step in the Wrong Direction](https://abdymok.substack.com/p/something-has-gone-horribly-wrong). *z. loyalist appointed Ukraine's Prosecutor General* (March 17, 2020)
+[A Step in the Wrong Direction](https://abdymok.substack.com/p/something-has-gone-horribly-wrong). *Z loyalist appointed Ukraine's Prosecutor General* (March 17, 2020)
 
 ---
 
@@ -6411,7 +6411,7 @@ Looking on the bright side, we got three months of running over the summer and w
 
 [2](#footnote-anchor-2)
 
-[Minister of Foreign Affairs Kuleba. z., Yermak, Biden, Johnson, Erdogan, Lavrov, China. Gordon](https://www.youtube.com/watch?v=k4-QpCv5Gtc&t=2904s&ab_channel=%D0%92%D0%B3%D0%BE%D1%81%D1%82%D1%8F%D1%85%D1%83%D0%93%D0%BE%D1%80%D0%B4%D0%BE%D0%BD%D0%B0) (August 15, 2022)
+[Minister of Foreign Affairs Kuleba. Z, Yermak, Biden, Johnson, Erdogan, Lavrov, China. Gordon](https://www.youtube.com/watch?v=k4-QpCv5Gtc&t=2904s&ab_channel=%D0%92%D0%B3%D0%BE%D1%81%D1%82%D1%8F%D1%85%D1%83%D0%93%D0%BE%D1%80%D0%B4%D0%BE%D0%BD%D0%B0) (August 15, 2022)
 
 [3](#footnote-anchor-3)
 
@@ -6615,7 +6615,7 @@ Spare me, spare me the song and dance. Anyone who believes this bullshit is a mo
 
 [Image]
 
-Unable to establish any sort of authoritative voice before flinging together pro-z. talking points, Leshchenko last year [took the lead](https://www.kyivpost.com/ukraine-politics/de-oligarchization-whats-happening-and-whats-at-stake.html) in the steeplechase of hacks making hay out of the country’s already unspeakable tragedy of democratic governance.
+Unable to establish any sort of authoritative voice before flinging together pro-Z talking points, Leshchenko last year [took the lead](https://www.kyivpost.com/ukraine-politics/de-oligarchization-whats-happening-and-whats-at-stake.html) in the steeplechase of hacks making hay out of the country’s already unspeakable tragedy of democratic governance.
 
 Playing temporary court jester to the wrong-and-strong, [killvlogging](https://www.youtube.com/c/%D0%A1%D0%95%D0%A0%D0%93%D0%86%D0%99%D0%9B%D0%95%D0%A9%D0%95%D0%9D%D0%9A%D0%9E21) endless shrill about everything conveniently ‘anti-Z’: this is all good and well. But that doesn’t help the teenage girls trying and failing to enjoy cuddles because this unhip doucherocket crashes their rave waving a Kiss Me! sign. This time with Franklin in tow.
 
@@ -7134,7 +7134,7 @@ Thanks, Oleksiy!
 
 [1](#footnote-anchor-1)
 
-[Inside the Meeting That Foreshadowed Spartz's Split With z.'s Ukraine](https://www.newsweek.com/inside-victoria-spartz-ukraine-war-meeting-split-zelensky-1745704). Newsweek (September 27, 2022)
+[Inside the Meeting That Foreshadowed Spartz's Split With Z's Ukraine](https://www.newsweek.com/inside-victoria-spartz-ukraine-war-meeting-split-zelensky-1745704). Newsweek (September 27, 2022)
 
 [2](#footnote-anchor-2)
 
@@ -8016,7 +8016,7 @@ The last chapter, IX, is about my roommate from Riga in Moscow, Edik, who enjoye
 
 Which brings me to this paragraph of an op-ed by David in The Washington Post, titled “[The U.S. seeks to support Ukraine, but contain the war.](https://www.washingtonpost.com/opinions/2022/11/18/ukraine-war-william-burns-russia-poland-missile/)”
 
-> Third, let’s think about the delicate relationship between Washington and Kyiv. z. has the power of a brave, charismatic leader to pressure his superpower patron into actions that might not be in the United States’ interests. The Biden administration has tried to strike a balance between strong military support for Ukraine and avoiding anything that might trigger a direct Russian-American conflict.
+> Third, let’s think about the delicate relationship between Washington and Kyiv. Z has the power of a brave, charismatic leader to pressure his superpower patron into actions that might not be in the United States’ interests. The Biden administration has tried to strike a balance between strong military support for Ukraine and avoiding anything that might trigger a direct Russian-American conflict.
 
 Brave, charismatic? Maybe desperate? What does “direct conflict” mean? And no, sorry, William is *not* fluent in Russian. He knows the alphabet and dozens of words. His pronunciation is lousy.
 
@@ -8036,7 +8036,7 @@ Wonderful. Let’s just hope we aren’t irradiated and freeze to death during t
 
 So, [Penguin Random House](https://en.wikipedia.org/wiki/Penguin_Random_House) over the summer proposed itself as the only publisher of the condensed (or large-print) version of the *ur*-text of approved pep rhetoric. [A Message from Ukraine](https://www.amazon.com/Message-Ukraine-Speeches-2019-2022-ebook/dp/B0BGX2HNJ9) contains a preface that explains the context of the incised line breaks and verse settings.
 
-That brings us to George Will and his Tim Snyderish op-ed urging us to [Be Thankful for z.’s Magnificent Resistance to Suppression](https://www.washingtonpost.com/opinions/2022/11/23/zelensky-resistance-ukraine-war/).
+That brings us to George Will and his Tim Snyderish op-ed urging us to [Be Thankful for Z’s Magnificent Resistance to Suppression](https://www.washingtonpost.com/opinions/2022/11/23/zelensky-resistance-ukraine-war/).
 
 [Image]
 
@@ -8098,7 +8098,7 @@ It is almost 20 years since Masha teamed up with Steven Korn, a former CNN execu
 Maybe this is a display of *agency[1](#footnote-1)*.
 
 [Image]
-*z. vows Ukraine will withstand Russian attacks on power networks . FT (November 25, 2022)*
+*Z vows Ukraine will withstand Russian attacks on power networks . FT (November 25, 2022)*
 
 In other news, I ate probably **the most delicious шауа́рма ever** chatting up a woman from Paris about the French wholesale wine business and her Danish friend who lives in Norway and visits when he has enough money. There is more to this story, but I won’t write about it because it would be inappropriate.
 
@@ -8308,7 +8308,7 @@ Think [JDAM strikes](https://www.youtube.com/watch?v=o5bH7VurGTs&ab_channel=matt
 
 [The Economist](http://economist.com) dug the black hole of Ukraine-related bullshit a little deeper this week.
 
-> **Officials** close to Mr z. are quick to point out that General Zaluzhny has not visited the front line. That, say the general’s defenders, is because the same officials have barred him from doing so. Some in the president’s circle would like to replace him with General Oleksandr Syrsky, who commands Ukraine’s land forces, over whose head General Zaluzhny was promoted last year.[1](#footnote-1)
+> **Officials** close to Mr Z are quick to point out that General Zaluzhny has not visited the front line. That, say the general’s defenders, is because the same officials have barred him from doing so. Some in the president’s circle would like to replace him with General Oleksandr Syrsky, who commands Ukraine’s land forces, over whose head General Zaluzhny was promoted last year.[1](#footnote-1)
 
 **Officials? Advisors to officials? Operators?** Maybe whoever wrote this bullshit doesn’t understand the difference.
 
@@ -8527,7 +8527,7 @@ Regular expression syntax: all other language lies weeping in its wake.
 If you’re as bored as I am with the stream of retrograde newspeak from power-dazzled Ukraine experts – those who, despite having long abused the gravitas of instability brought about by unspeakable shortsightedness, continue to use it to justify regurgitating feel-good bullshit (it’s amusing to note that the most lurid post-Cold War fantasies of covert propaganda spread on behalf of Team Democracy by government operatives have been rendered irrelevant by a chattering horde of [useful idiots](https://www.kyivpost.com/author/diane-francis) now serving it up for free every day: who needs black ops when you’ve got Sub\*stack) – then you won’t find a breathtaking voice of reason in David Ignatius[1](#footnote-1).
 
 [Image]
-*Where z. and Biden still diverge. David Ignatius, The Washington Post (December 22, 2022)*
+*Where Z and Biden still diverge. David Ignatius, The Washington Post (December 22, 2022)*
 
 Which brings me to the war jacket. The Armed Forces of Ukraine [say](https://www.mil.gov.ua/en/news/2022/12/22/the-total-combat-losses-of-the-enemy-from-24-02-to-22-12/) more than 100,000 Russian invaders have been vaporized. The AFU during the last several months has de-occupied about half of the areas seized since February, not including Crimea, accounting for about 20-25% of the country.
 
