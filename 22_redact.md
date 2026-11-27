@@ -133,7 +133,7 @@ Whatever. Carousing is not only a key to Special Operations success but is also 
 ---
 
 - Canada sends [CANSOFCOM](https://www.canada.ca/en/department-national-defence/corporate/reports-publications/transition-materials/defence-101/2020/03/defence-101/cansofcom.html) squad to Kyiv. ([link](https://globalnews.ca/news/8517110/canada-special-forces-ukraine-russia/))
-- CIA chief chats up z.. ([link](https://twitter.com/NatashaBertrand/status/1483224463491665924)) (cf. [Tactical Athletics at Tootsie](https://abdymok.substack.com/p/stay-out-of-doorways))
+- CIA chief chats up Z. ([link](https://twitter.com/NatashaBertrand/status/1483224463491665924)) (cf. [Tactical Athletics at Tootsie](https://abdymok.substack.com/p/stay-out-of-doorways))
 - Russia de-populating its consular offices. ([link](https://www.nytimes.com/2022/01/17/us/politics/russia-ukraine-kyiv-embassy.html?searchResultPosition=2))
 - UK starts supplying Ukraine w/ anti-tank weapons. ([link](https://bit.ly/3FB5xVx))
 - Russia blamed for massive cyber-attack. ([link](https://www.theguardian.com/world/2022/jan/16/ukraine-says-evidence-points-to-russia-being-behind-cyber-attack))
@@ -238,7 +238,7 @@ Radzikhovsky says this could explain Putin’s threat to cut Ukraine into little
 *Date: 2022-01-30 | Status: Published | Audience: only_paid | Type: newsletter*
 
 [Image]
-*President Volodymyr z.. Photo c/o President’s Office*
+*President Volodymyr Z. Photo c/o President’s Office*
 
 The [disclosure](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=newssearch&cd=&cad=rja&uact=8&ved=2ahUKEwjbyNT_gtn1AhW8h_0HHcqxAioQxfQBKAB6BAgOEAI&url=https%3A%2F%2Fwww.reuters.com%2Fworld%2Feurope%2Fexclusive-russia-moves-blood-supplies-near-ukraine-adding-us-concern-officials-2022-01-28%2F&usg=AOvVaw3NsuuWaZqMX2-4rrryHC95) on January 28, 2022 about blood supplies by U.S. officials, speaking on condition of anonymity, came amid growing warnings that Russia could be preparing for a further invasion as it massed more than 100,000 soldiers on its border with Ukraine.
 
@@ -2186,7 +2186,7 @@ The answer might explain why most Americans (72%) have a lot or some confidence 
 
 > Almost half of Americans ages 65 and older have *a* *lot* of confidence in Z, compared with 28% of adults under 30. Americans with more education, especially those with postgraduate degrees, are also more inclined to have confidence in the Ukrainian president, the report [says](https://twitter.com/pewresearch).
 
-The vast majority of Americans with poor geographic and foreign policy knowledge are the most supportive of z.. At the same time, less than 7% of those surveyed were able to find his country on a map. So it goes.
+The vast majority of Americans with poor geographic and foreign policy knowledge are the most supportive of Z. At the same time, less than 7% of those surveyed were able to find his country on a map. So it goes.
 
 ---
 
@@ -2198,7 +2198,7 @@ Gaping insecurity, white-hot neediness, gelatin bravado – there are worse char
 
 ---
 
-Which brings me to The Washington Post’s [editorial page](https://www.washingtonpost.com/opinions/?itid=hp_top_nav_opinions), which is bending over backwards for z!team.
+Which brings me to The Washington Post’s [editorial page](https://www.washingtonpost.com/opinions/?itid=hp_top_nav_opinions), which is bending over backwards for Z!Team.
 
 [Image]
 
@@ -2318,7 +2318,7 @@ It’s a quiet, cold Sunday morning in Kyiv. I sit down to read about Ukraine…
 
 Five minutes later, I’m stuck in the middle of a 6,800-word Wall Street Journal [recapitulation](https://www.wsj.com/articles/vladimir-putins-20-year-march-to-war-in-ukraineand-how-the-west-mishandled-it-11648826461) of the entire mess, titled “Vladimir Putin’s 20-Year March to War in Ukraine—and How the West Mishandled It.”
 
-Six co-authors of the feature say CIA Director William Burns visited Kyiv in early January to warn z!team about Putin’s invasion plans.
+Six co-authors of the feature say CIA Director William Burns visited Kyiv in early January to warn Z!Team about Putin’s invasion plans.
 
 [We recall](https://abdymok.substack.com/p/stay-out-of-doorways?s=w) that U.S. and allied non-permissive environment specialists at the time had just landed in Kyiv and were scheming with indigenous commandos at [Tootsie Club](https://en.tootsie.kiev.ua/) to liberate possible future oppressed residents of the capital.
 
@@ -2406,7 +2406,7 @@ The three-hour-plus video below, recorded from 11:30 to 15:00 on Saturday, April
 *How Many Fingers?*
 
 [Image]
-*Photo: Vadim Ghirda, Ronaldo Schemidt, УНІАН c/o z.*
+*Photo: Vadim Ghirda, Ronaldo Schemidt, УНІАН c/o Z*
 
 [Battleground buffoonery](https://edition.cnn.com/videos/world/2022/04/04/southern-ukraine-nearby-russian-assualt-cnn-crew-wedeman-pkg-lead-vpx.cnn). I just watched CNN’s Ben Wederman almost commit suicide on the outskirts of Mykolaiv.
 
@@ -2430,7 +2430,7 @@ Oh, just noticed a toolbar w/ new buttons:
 
 Sure enough, Iuliia is back with another [dispatch](https://www.washingtonpost.com/opinions/2022/04/04/bucha-fills-ukrainians-with-rage-fear-other-unseen-atrocities/) from her chocolate shop in Lviv. Shaken from the horror of frontline Kyiv, our battle-weary contributor, doing her usual shabby Barbara Amiel impersonation, refers to Bucha as “an affordable option for those looking to stay close to the capital.”
 
-Ukraine’s top cop Iryna [tells us](https://tsn.ua/ato/naybilshe-zhertv-u-borodyanci-venediktova-pro-masovi-vbivstva-rosiyan-na-kiyivschini-2028586.html) Borodyanka tops Bucha in terms of unspeakable misery, murder and death. Cf. [Day 9, Phase 1](https://abdymok.substack.com/p/day-9?s=w). Looks like John has [caught up](https://bit.ly/3DEG7a6) w/ the massacres, as has [z..](https://www.theguardian.com/world/live/2022/apr/05/russia-ukraine-war-latest-news-live-updates-zelenskiy-address-un-united-nations-borodyanka-atrocities-bucha)
+Ukraine’s top cop Iryna [tells us](https://tsn.ua/ato/naybilshe-zhertv-u-borodyanci-venediktova-pro-masovi-vbivstva-rosiyan-na-kiyivschini-2028586.html) Borodyanka tops Bucha in terms of unspeakable misery, murder and death. Cf. [Day 9, Phase 1](https://abdymok.substack.com/p/day-9?s=w). Looks like John has [caught up](https://bit.ly/3DEG7a6) w/ the massacres, as has [Z.](https://www.theguardian.com/world/live/2022/apr/05/russia-ukraine-war-latest-news-live-updates-zelenskiy-address-un-united-nations-borodyanka-atrocities-bucha)
 
 [Image]
 
@@ -2523,11 +2523,11 @@ Arkady asks an important question in the beginning of the chit chat:
 
 On March 6, Mykhailo Podoliak, advisor to Andriy Yermak, head of Ukraine’s Office of the President, admitted this was a mistake, starting at 46:20, in this [chit chat](https://www.youtube.com/watch?v=J5dn_dPXuIY).
 
-> Latynina: So, you’re saying that you [z!team] made a mistake.
+> Latynina: So, you’re saying that you [Z!Team] made a mistake.
 >
 > Podoliak: **Yes**, to a certain extent. **Yes**.
 
-Podoliak explains that z!team made the same mistake as Fred in ISW’s loopy [counterfactual fantasy](https://www.understandingwar.org/sites/default/files/Ukraine%20Invasion%20Forecast%20Series%20Part%201%20ISW%20CT%20December%202021.pdf?fbclid=IwAR2XMXeaIPep1VRBXDubW-c3IKBPGNV9mmfL-hTJvVQ8wdEZVgDiItLb2hE) (which we discussed on [Day 5](https://abdymok.substack.com/p/day-5?s=w)), namely assessing that:
+Podoliak explains that Z!Team made the same mistake as Fred in ISW’s loopy [counterfactual fantasy](https://www.understandingwar.org/sites/default/files/Ukraine%20Invasion%20Forecast%20Series%20Part%201%20ISW%20CT%20December%202021.pdf?fbclid=IwAR2XMXeaIPep1VRBXDubW-c3IKBPGNV9mmfL-hTJvVQ8wdEZVgDiItLb2hE) (which we discussed on [Day 5](https://abdymok.substack.com/p/day-5?s=w)), namely assessing that:
 
 > Putin is and remains a rational actor who is not less well-grounded in reality than most world leaders. ...He will not intentionally take actions likely to risk the survival of the Russian state or his own rule, although... No “bounded rationality” is necessary to explain Putin’s decisions or actions.
 
@@ -3188,7 +3188,7 @@ I’ve been using [Deepstate UA](https://deepstatemap.live/#10/49.1175/37.8129)�
 *Buried by the Times*
 
 [Image]
-*Somewhere in Kharkiv. Photo by Chris McGrath c/o z.*
+*Somewhere in Kharkiv. Photo by Chris McGrath c/o Z*
 
 Some say that minus U.S. military assistance most Ukrainians would already be walking around drunk in their underwear, while others argue that we’ll be running sub-6 minute miles in bare feet before the start of Phase 4.
 
@@ -4032,7 +4032,7 @@ I practically never look at the greasy [rag](https://www.kyivpost.com/) anymore,
 [Image]
 *Map c/o Nathan*
 
-No one is sure what’s going on, including Uncle Joe, who has reportedly told Tiger Team to stop leaking information[1](#footnote-1) about what intelligence America’s spy agencies are sharing with z.. Leaked intelligence, as we all know, is a *double entendre*, that is, open to two interpretations, one of which is usually indecent or risqué, in this case the latter. Just ask [Oleksiy](https://www.youtube.com/channel/UCjWy2g76QZf7QLEwx4cB46g). It’s his specialty.
+No one is sure what’s going on, including Uncle Joe, who has reportedly told Tiger Team to stop leaking information[1](#footnote-1) about what intelligence America’s spy agencies are sharing with Z. Leaked intelligence, as we all know, is a *double entendre*, that is, open to two interpretations, one of which is usually indecent or risqué, in this case the latter. Just ask [Oleksiy](https://www.youtube.com/channel/UCjWy2g76QZf7QLEwx4cB46g). It’s his specialty.
 
 There are upsides[2](#footnote-2) and downsides[3](#footnote-3) to throwing operation security out the window, depending on whether you’re a legionnaire standing in the dark near a wooded area between open fields on the outskirts of [Ruska Lozova,](https://en.wikipedia.org/wiki/Ruska_Lozova) or merely a voyeur pundit staking out a large Beltway bathroom.
 
@@ -4287,7 +4287,7 @@ In other news, Peter Coy at The New York Times assembled this [collection of wor
 
 [Image]
 
-Actually, no. Z for months refused to act on repeated warnings that Vova had decided to decapitate Kyiv[2](#footnote-2). **Ukrainians rallied z.** *after* Russia’s all-out invasion began.
+Actually, no. Z for months refused to act on repeated warnings that Vova had decided to decapitate Kyiv[2](#footnote-2). **Ukrainians rallied Z** *after* Russia’s all-out invasion began.
 
 Coy’s column reminded me of what Olga Rudenko [opined](https://www.nytimes.com/2022/02/21/opinion/ukraine-russia-zelensky-putin.html?searchResultPosition=1) on February 21, 2022.
 
