@@ -6,7 +6,7 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through October 1, 2025. Next starting date: October 2.
+- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through October 13, 2025. Next starting date: October 14.
 - `2024.md` has now been proofread from the user's reported prior stopping point (October 10) through December 31. The user's latest handover supplied the prior work log: July passages finalized, July 24–29 edited, August reviewed and polished, late summer corrected, September polished and proofread, and October edits reviewed through October 10.
 - October 11–December 31 edits were saved in separate checkpoint commits. Each commit message records the next starting date. Commits:
   - `1145a779b05f296b2a6323bc6fc5d8595b2e3314` — through October 16; next October 17.
@@ -40,6 +40,7 @@ Last updated: 2026-11-27
 - The June 9 entry identifies Dubno Air Base as being in Poltava region. Dubno is generally associated with Rivne region; verify the intended site/location before changing the text.
 - A June 19 footnote cites a Kiel Institute report with the date June 16, 2026, although the surrounding entry is dated June 19, 2025. Verify the source date during the fact/link pass.
 - Additional likely link/reference mismatches found during the May 14–27 pass: a “Day 1125” link points to the Day 1124 URL; another “Day 1125” reference points to the Day 1123 URL; and a “Day 1175” reference is paired with a March 13, 2025 date even though Day 1175 appears in the archive as May 13. Verify during the separate link-integrity pass.
+- An October 8 sentence reads: “I am from Millwood—not Norwood—New York and only nominally.” It appears truncated or incomplete; left for author clarification.
 - A sentence in the January 17 entry is syntactically unclear: “I took a day off from scowling and screaming at MAGA stars who continue to spawn in order to luxuriate in Scott’s appearance before the US Senate Finance Committee (that I want to work hard on at least one equality vs equity problem I am interested in).” Leave for author review rather than guessing at its intended meaning.
 
 ## 2023 progress
