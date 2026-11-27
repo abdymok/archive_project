@@ -6,7 +6,7 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through May 27, 2025. Next starting date: May 28.
+- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through June 10, 2025. Next starting date: June 11.
 - `2024.md` has now been proofread from the user's reported prior stopping point (October 10) through December 31. The user's latest handover supplied the prior work log: July passages finalized, July 24–29 edited, August reviewed and polished, late summer corrected, September polished and proofread, and October edits reviewed through October 10.
 - October 11–December 31 edits were saved in separate checkpoint commits. Each commit message records the next starting date. Commits:
   - `1145a779b05f296b2a6323bc6fc5d8595b2e3314` — through October 16; next October 17.
@@ -37,6 +37,7 @@ Last updated: 2026-11-27
 - The file contains 280 posts and approximately 14,195 lines. Earlier commits in the file history cover initial archive normalization, malformed-link repairs, Z normalization, and scattered typo/duplicate-word fixes. Do not assume those commits represent a complete sentence-level pass; this session is establishing dated proofreading checkpoints.
 - The March 3 entry says the term “coalition of the willing” was applied to the US-led Multi-National Force in Iraq “during 1993.” This appears to be a possible date error (likely 2003), but it is left for source/author confirmation rather than silently changed.
 - A March 20 entry says “I enjoyed this article from The New York Times” but links to a BBC article about a ceasefire, not an NYT article about Donald Trump Jr. in Serbia. Flag for the separate link-integrity pass; do not silently replace the target.
+- The June 9 entry identifies Dubno Air Base as being in Poltava region. Dubno is generally associated with Rivne region; verify the intended site/location before changing the text.
 - Additional likely link/reference mismatches found during the May 14–27 pass: a “Day 1125” link points to the Day 1124 URL; another “Day 1125” reference points to the Day 1123 URL; and a “Day 1175” reference is paired with a March 13, 2025 date even though Day 1175 appears in the archive as May 13. Verify during the separate link-integrity pass.
 - A sentence in the January 17 entry is syntactically unclear: “I took a day off from scowling and screaming at MAGA stars who continue to spawn in order to luxuriate in Scott’s appearance before the US Senate Finance Committee (that I want to work hard on at least one equality vs equity problem I am interested in).” Leave for author review rather than guessing at its intended meaning.
 
