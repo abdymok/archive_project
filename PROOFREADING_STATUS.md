@@ -6,7 +6,7 @@ Last updated: 2026-11-27
 
 - Repository: `abdymok/archive_project`
 - Branch: `main`
-- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through February 28, 2025. Next starting date: March 1.
+- `2024.md` sentence-level proofreading is complete from January 1 through December 31. The earlier January–June discrepancy was reconciled against GitHub history; no re-proofreading is needed. Current file: `2025.md`, proofread through March 12, 2025. Next starting date: March 13.
 - `2024.md` has now been proofread from the user's reported prior stopping point (October 10) through December 31. The user's latest handover supplied the prior work log: July passages finalized, July 24–29 edited, August reviewed and polished, late summer corrected, September polished and proofread, and October edits reviewed through October 10.
 - October 11–December 31 edits were saved in separate checkpoint commits. Each commit message records the next starting date. Commits:
   - `1145a779b05f296b2a6323bc6fc5d8595b2e3314` — through October 16; next October 17.
