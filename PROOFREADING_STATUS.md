@@ -1,5 +1,23 @@
 # Archive proofreading handover
 
+Last updated: 2026-11-28
+
+## Latest archive checkpoint — November 28, 2026
+
+- Appended **Day 1738, “The doors are closing”** to the end of `2026.md`, dated `2026-11-27`.
+- The entry follows the normalized annual-file structure: H2 post title, ISO date, italic Day metadata, image embeds, converted video/audio embeds, body text, and post-ending separator.
+- The supplied prose was preserved. The relative Substack label “20 hours ago” was not carried over; the archive uses calendar dates. The two image variants were retained as clickable image embeds. The YouTube and SoundCloud players were represented as links, consistent with the archive's Markdown format.
+- Commit: `b22d7645b229f090f2d50e03014de6730ea2b99a` — [Append Day 1738: The doors are closing](https://github.com/abdymok/archive_project/commit/b22d7645b229f090f2d50e03014de6730ea2b99a).
+- Verified after commit: `2026.md` now contains 272 dated entries and 272 H2 post headings; Day 1737 remains immediately before Day 1738; the new entry is at EOF; final newline is present.
+- No proofreading or factual editing was performed on the supplied post.
+- Annual Markdown normalization is complete for all eight files, `2019.md`–`2026.md`. The cross-file audit recorded 1,502 entries before this append, each with a matching heading and chronological date order. The new 2026 entry brings the total to 1,503.
+- The annual-file structural QC is complete. A separate legacy footnote-anchor/link-integrity investigation remains unresolved; do not make a global footnote rewrite until the GitHub rendering convention is established.
+- Repository root contains nine Markdown files: the eight annual archives plus this `PROOFREADING_STATUS.md`.
+
+## Previous handover
+
+ndover
+
 Last updated: 2026-11-27
 
 ## Current checkpoint
