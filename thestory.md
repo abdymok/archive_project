@@ -209,7 +209,7 @@ Day 1406. The next year was already arriving.
 
 ## The year of two clocks
 
-The year opened with a question: was it a year to forget, or a year to regret? On the last day of December, the *New York Times* had published eighteen and a half thousand words about how Washington had helped Moscow prolong the war. Trump answered not with an apology but with a pep talk. The archive listened, as it had promised to listen, and went out into the cold.
+The year opened with a question: was it a year to forget, or regret? On December 31, the *New York Times* had published eighteen and a half thousand words on how Washington had helped Moscow prolong the war. Trump answered with a pep talk. The archive went out into the cold.
 
 There were two clocks in Kyiv. One belonged to the diplomats, who kept announcing that something was about to happen. The other belonged to the city, which measured the year in outages, air raids and the hours until the heating came back.
 
@@ -223,7 +223,7 @@ July was not quiet. A Russian strike on Kyiv came in its usual order: ballistic 
 
 Politics produced its own weather. Defence Minister Mykhailo Fedorov was dismissed and gave an exit briefing that named everyone except the person who mattered. Outside, on the square beside the Ivan Franko Theatre, people gathered, but their signs were aimed at the commander-in-chief, Syrsky, who had kept his job. A year earlier Z had signed the law that gutted the independence of the anti-corruption agencies and provoked the largest protests of the war. By August the government had been dismissed, leaving the country without a defence minister or a foreign minister. At Myla, twenty-five kilometres from Kyiv, an arms depot exploded. At least thirty-eight people were killed.
 
-By September, the disorder had moved indoors. A shootout between HUR, Ukraine’s military intelligence service, and the SBU, its domestic security service, centred on Stepan Kaplunov, a deputy commander of the Russian Volunteer Corps, Russians who fight on Ukraine’s side against Moscow. HUR had come to rescue him from men it believed were holding him. The men turned out to be SBU officers. It was less a spy thriller than a turf war between armed men who had forgotten where the fence stood.
+By September, the disorder had moved indoors. A shootout between HUR, Ukraine’s military intelligence service, and the SBU, its domestic security service, centred on Stepan Kaplunov, a deputy commander of the Russian Volunteer Corps, a formation of Russians fighting on Ukraine’s side. HUR had come to rescue him from men it believed were holding him. The men turned out to be SBU officers. It was less a spy thriller than a turf war between armed men who had forgotten where the fence stood.
 
 On September 25, a Russian drone struck the tenth and eleventh floors of a Pechersk apartment block where I had lived for four years. I now lived two hundred metres away. The school beside the block was thirty metres from it. A fourteen-year-old boy was killed and at least seven residents were injured. The archive wrote: *There are days when geography becomes literature all by itself.* That same week, another attack on Kyiv’s network infrastructure revealed a new tactic: two jet-powered drones working in tandem, one carrying the weapon, the other relaying signals and filming. On September 28, a drone struck the National Academy of Sciences and a hospital. The Academy’s building partly collapsed and caught fire. At least two people were killed.
 
@@ -231,11 +231,11 @@ The diplomatic traffic had no front line, only a succession of hotels and airpor
 
 In Berlin, a spokesman announced that four principles had been agreed in Abu Dhabi. Governments rarely announce their principles, the archive remarked. They prefer to let them be discovered later, like an old coat in a wardrobe. On November 19, the leaders of America, Russia and China met at Xi’s invitation and issued a declaration about reforming the United Nations, avoiding nuclear war and limiting the reach of international courts. The archive filed it under *Declared impunity*. The photograph that accompanied it had been taken in the Kyiv metro during a combined air assault.
 
-A Washington columnist wrote that the war was running on two clocks, one belonging to the diplomats and one to the drones. He reported that Kyiv had spent 172 hours under air alert in October. The archive, which had counted each interval, made it 184 hours and 23 minutes across 217 alerts. It entered its objection under *Two clocks, one golf course, and no cake*. A difference of twelve hours was a matter of professional honour. It is possible to love a city by counting its alerts.
+A Washington columnist reported that Kyiv had spent 172 hours under air alert in October. The archive, which had counted each interval, made it 184 hours and 23 minutes across 217 alerts. It entered its objection under *Two clocks, one golf course, and no cake*. A difference of twelve hours was a matter of professional honour. It is possible to love a city by counting its alerts.
 
-The year’s ordinary life appeared in fragments: people carrying foam mats down to the metro, waiting for electricity to return, fitting ordinary errands between alerts. These were not interruptions from the war. They were the narrow spaces the war had left for living.
+Elsewhere, people waited for electricity, fitted errands between alerts and found ways to keep ordinary routines alive. These were not interruptions from the war. They were the narrow spaces the war left for living.
 
-The last entry to date was *The doors are closing*. Z had held a press conference lasting twenty-two minutes and nineteen seconds without a question he had not rehearsed an answer to. A BBC correspondent asked who “Vova” referred to in the Mindich recordings, which had become part of an inquiry into alleged corruption at the heart of the energy sector. The answer was that she might ask the anti-corruption institutions. The archive went back to its chronology page, where the fatalities and the seconds under alert were being reconciled one by one.
+The latest entry was *The doors are closing*. Z held a press conference lasting twenty-two minutes and nineteen seconds. A BBC correspondent asked who “Vova” referred to in the Mindich recordings, part of an inquiry into alleged corruption at the heart of the energy sector. Z replied that she might ask the anti-corruption institutions.
 
 It had been a very confusing year. Two clocks were running in Kyiv, and only one of them was keeping time.
 
