@@ -235,4 +235,6 @@ The last entry to date was *The doors are closing*. The President had held a pre
 
 It had been a very confusing year. Two clocks were running in Kyiv, and only one of them was keeping time.
 
-Day 1738. Tomorrow the count would reach 1,739, the number the archive had named when it was thirty days old and 1,709 days away. There was still no way of knowing what the days after it would contain.
+Day 1738. Tomorrow the count would reach 1,739. The number had once been a distant marker, noted almost in passing. Now it was simply tomorrow. The lights might go out again. The alerts might sound. The next entry had not yet been written.
+
+To be continued.
